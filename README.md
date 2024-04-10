@@ -15,3 +15,4 @@ https://github.com/paraps/paraps/assets/160081169/01ea33c2-718e-496b-88ce-673f91
 
 ### PLEASE READ BIO BEFORE INTERACTING !!
 #### also this github is for ponytown ONLY, anyone who isn't from ponytown WILL (MOST LIKELY) BE BLOCKED.
+#### will generally hide anyone who makes me uncomfy or are just really annoying lol
