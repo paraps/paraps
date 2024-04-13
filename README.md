@@ -14,5 +14,5 @@ https://github.com/paraps/paraps/assets/160081169/01ea33c2-718e-496b-88ce-673f91
 
 
 ### PLEASE READ BIO BEFORE INTERACTING !!
-#### also this github is for ponytown ONLY so uh,, anyone not from there idk what to tell ya.
+#### also this github is for ponytown ONLY so uh,, anyone not from ponytown idk what to tell ya.
 #### will generally hide anyone who makes me uncomfy or are just really annoying lol
