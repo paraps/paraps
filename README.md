@@ -9,7 +9,7 @@ https://github.com/paraps/paraps/assets/160081169/01ea33c2-718e-496b-88ce-673f91
 ;; fictionkin of bunsen [bunsen is a beast] !! ;;
 </p>
 <p align="center">
-✩ - yes i'm that bunsen cosplayer on ponytown that's literally everywhere lol,, but i'm usually near docks or at mafias / sometimes RPs if you need me
+✩ - yes i'm that bunsen cosplayer on ponytown that's literally everywhere lol,, but i'm usually near docks, bakery, or at mafias/RPs if you need me
 </p>
 
 
