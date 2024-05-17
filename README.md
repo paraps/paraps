@@ -12,7 +12,7 @@
 <p align="center">
 ✩ - she/her or they/them !! | autistic + ADHD | - ✩
 <p align="center">
-;; fictionkin of bunsen [bunsen is a beast] !! ;;
+;; bunsen [bunsen is a beast] fictionkin !! ;;
 </p>
 <p align="center">
 ✩ - yes i'm that bunsen cosplayer on ponytown that's literally everywhere lol,, but i'm usually near docks, bakery, or at mafias/RPs if you need me
