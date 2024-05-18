@@ -15,13 +15,27 @@
 ;; bunsen [bunsen is a beast] fictionkin !! ;;
 </p>
 <p align="center">
-✩ - yes i'm that bunsen cosplayer on ponytown that's literally everywhere lol,, but i'm usually near docks, bakery, or at mafias/RPs if you need me
+✩ - i'm usually near docks, bakery, or at mafias/RPs if you need me !!
 </p>
 
+___
+### PONYTOWN STATUSES !
+<p align="center">
+  🟢 - i don't think i really use this one-
+</p>
+<p align="center">
+  💬 - the status i usually use, i'm open for interactions!!
+</p>
+<p align="center">
+  🎭 - i only use this whenever i'm currently in a RP
+</p>
+<p align="center">
+  🌙 - i rarely use this, but i sometimes use it when i'm AFK
+</p>
+<p align="center">
+  ⛔️ - i'm in a bad mood, interact with caution
+</p>
 
-### PLEASE READ BIO BEFORE INTERACTING !!
-#### also this github is for ponytown ONLY so uh,, anyone not from ponytown idk what to tell ya.
-#### will generally hide anyone who makes me uncomfy or are just really annoying lol
 
 <p align="center">
   <img src="https://64.media.tumblr.com/10b922af401ada656793fbbb8542642d/ad511c6e9d85e880-84/s1280x1920/2f762a822bcf116a1c8c7b98e835bb285ed94451.pnj" alt="animated" />  
