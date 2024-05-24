@@ -21,6 +21,12 @@
 <p align="center">
   <img src="https://files.catbox.moe/dcm7rn.gif" alt="animated" /> <img src="https://files.catbox.moe/xznj7y.gif" alt="animated" /> <img src="https://files.catbox.moe/ud0spr.gif" alt="animated" /> <img src="https://files.catbox.moe/fzlunt.gif" alt="animated" />
 </p>
+<p align="center">
+<img src="https://i.imgur.com/AHKtrmY.gif" alt="animated" /> <img src="https://i.imgur.com/odM7ujn.gif" alt="animated" /> <img src="https://i.imgur.com/E4Xfp0Q.gif" alt="animated" /> <img src="https://i.imgur.com/KBUBP3x.gif" alt="animated" />
+</p>
+<p align="center">
+also here's my collection of bunsen stamps that i made,, you're free to use them if you want !!
+</p>
 
 ___
 ### PONYTOWN STATUSES !
