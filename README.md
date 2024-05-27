@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/0bca00477a0a4edfa9b30a19c3b1bf97/ad511c6e9d85e880-11/s1280x1920/c5f38ba209e8f292e51fd14b40d61b03967d562c.pnj" alt="animated" />  
+  <img src="https://64.media.tumblr.com/23b8f1a5eed68cc069a3deb19419d16f/97b51e36be483cf5-d8/s1280x1920/dd742616caad3a9e2443685e7b65fa9d9d13abbf.pnj" alt="animated" />  
 <p align="center">
   <img src="https://github.com/paraps/paraps/assets/160081169/ff02a600-9daf-4ca4-a642-4ba3b1e02250" alt="animated" />
 </p>
@@ -59,5 +59,5 @@ ___
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/10b922af401ada656793fbbb8542642d/ad511c6e9d85e880-84/s1280x1920/2f762a822bcf116a1c8c7b98e835bb285ed94451.pnj" alt="animated" />  
-<p align="center">
+  <img src="https://64.media.tumblr.com/68d9e1ed634a751a9080a20fe5348da8/97b51e36be483cf5-94/s1280x1920/ab570358552bb257b2a76bb022411badbed6c87f.pnj" alt="animated" />  
+</p>
