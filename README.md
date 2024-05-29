@@ -28,6 +28,9 @@
   <img src="https://i.imgur.com/aURm8OS.gif" alt="animated" /> <img src="https://i.imgur.com/WeWXTlG.gif" alt="animated" /> <img src="https://i.imgur.com/hKJ4g4v.gif" alt="animated" /> <img src="https://i.imgur.com/KHI58yc.gif" alt="animated" />
 </p>
 <p align="center">
+  <img src="https://i.imgur.com/FAExL4k.gif" alt="animated" />   <img src="https://i.imgur.com/PIkGdM6.gif" alt="animated" />   <img src="https://i.imgur.com/BOMsilJ.gif" alt="animated" />   <img src="https://i.imgur.com/cOAxwy2.gif" alt="animated" />
+</p>
+<p align="center">
 also here's my collection of bunsen stamps that i made,, you're free to use them if you want !!
 </p>
 
