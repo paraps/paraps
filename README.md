@@ -19,13 +19,13 @@
 ✩ - i'm usually near docks, bakery, market, or at mafias/RPs if you need me !!
 </p>
 <p align="center">
-  <img src="https://files.catbox.moe/dcm7rn.gif" alt="animated" /> <img src="https://files.catbox.moe/xznj7y.gif" alt="animated" /> <img src="https://files.catbox.moe/ud0spr.gif" alt="animated" /> <img src="https://files.catbox.moe/fzlunt.gif" alt="animated" />
+  <img src="https://i.imgur.com/gAsiDHa.gif" alt="animated" /> <img src="https://i.imgur.com/RvEE447.gif" alt="animated" /> <img src="https://i.imgur.com/CIpJM8q.gif" alt="animated" /> <img src="https://i.imgur.com/UY1FRvR.gif" alt="animated" />
 </p>
 <p align="center">
 <img src="https://i.imgur.com/AHKtrmY.gif" alt="animated" /> <img src="https://i.imgur.com/odM7ujn.gif" alt="animated" /> <img src="https://i.imgur.com/E4Xfp0Q.gif" alt="animated" /> <img src="https://i.imgur.com/KBUBP3x.gif" alt="animated" />
 </p>
 <p align="center">
-  <img src="https://files.catbox.moe/2qzrgw.gif" alt="animated" /> <img src="https://files.catbox.moe/lurcxr.gif" alt="animated" /> <img src="https://files.catbox.moe/1pkjai.gif" alt="animated" /> <img src="https://files.catbox.moe/q4mdb1.gif" alt="animated" />
+  <img src="https://i.imgur.com/aURm8OS.gif" alt="animated" /> <img src="https://i.imgur.com/WeWXTlG.gif" alt="animated" /> <img src="https://i.imgur.com/hKJ4g4v.gif" alt="animated" /> <img src="https://i.imgur.com/KHI58yc.gif" alt="animated" />
 </p>
 <p align="center">
 also here's my collection of bunsen stamps that i made,, you're free to use them if you want !!
