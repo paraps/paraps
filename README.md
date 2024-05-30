@@ -46,13 +46,13 @@ ___
   💬 - the status i usually use, i'm open for interactions!!
 </p>
 <p align="center">
-  🎭 - i only use this whenever i'm currently in a RP
+  🎭 - i only use this whenever i'm currently in a RP,, when i remember to use it atleast
 </p>
 <p align="center">
   🌙 - i rarely use this, but i sometimes use it when i'm AFK
 </p>
 <p align="center">
-  ⛔️ - i'm in a bad mood, interact with caution
+  ⛔️ - i'm in a bad mood, please interact with caution. 
 </p>
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery22/67e05689.png"/>
