@@ -37,6 +37,8 @@
 also here's my collection of bunsen stamps that i made,, you're free to use them if you want !!
 </p>
 
+[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%234363F3&title_bg=%23FF48E9&icon=&icon_color=%236383FF&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
+
 ___
 ### PONYTOWN STATUSES !
 <p align="center">
@@ -57,6 +59,7 @@ ___
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery22/67e05689.png"/>
 </p>
+
 <p align="center">
  <img src="https://i.imgur.com/WttVLxp.png"/>
 </p>
