@@ -16,7 +16,7 @@
 ;; bunsen [bunsen is a beast] fictionkin !! ;;
 </p>
 <p align="center">
-✩ - i'm usually near docks, bakery, market, or at mafias/RPs if you need me !!
+✩ - i'm usually near docks, bakery, market, or at mafias/RPs on ponytown if you need me !!
 </p>
 <p align="center">
   <img src="https://i.imgur.com/gAsiDHa.gif" alt="animated" /> <img src="https://i.imgur.com/RvEE447.gif" alt="animated" /> <img src="https://i.imgur.com/CIpJM8q.gif" alt="animated" /> <img src="https://i.imgur.com/UY1FRvR.gif" alt="animated" />
