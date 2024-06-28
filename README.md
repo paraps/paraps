@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/23b8f1a5eed68cc069a3deb19419d16f/97b51e36be483cf5-d8/s1280x1920/dd742616caad3a9e2443685e7b65fa9d9d13abbf.pnj" alt="animated" />  
 <p align="center">
-  <img src="https://github.com/paraps/paraps/assets/160081169/ff02a600-9daf-4ca4-a642-4ba3b1e02250" alt="animated" />
+  <img src="https://files.catbox.moe/gv5n76.gif" alt="animated" />
 </p>
 
 <p align="center">
