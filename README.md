@@ -1,11 +1,11 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/23b8f1a5eed68cc069a3deb19419d16f/97b51e36be483cf5-d8/s1280x1920/dd742616caad3a9e2443685e7b65fa9d9d13abbf.pnj" alt="animated" />  
+
 <p align="center">
   <img src="https://files.catbox.moe/gv5n76.gif" alt="animated" />
 </p>
-
-<p align="center">
-✩ - paraps / bunsen !! - ✩
+  <p align="center">
+<img src="https://files.catbox.moe/usxdeh.gif" alt="animated" />
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/b91e9796a035f97a2da5d89e0c835681/tumblr_inline_ml1c6aUbyo1qz4rgp.gif" alt="animated" />  
