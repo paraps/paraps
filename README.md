@@ -2,20 +2,17 @@
   <img src="https://64.media.tumblr.com/a224ab99e8d4da2a2366978603561f97/784e66afb200da97-28/s2048x3072/ed4e4c40def488ce8dd34d0f9a27472665b6d4b8.pnj" alt="animated" />  
 
 <p align="center">
-  <img src="https://files.catbox.moe/gv5n76.gif" alt="animated" />
+  <img src="https://files.catbox.moe/utn5kd.png" />
 </p>
 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/08c4c87a30da22f2de747e7efb3fcb2f/8ac72bb49761ea20-30/s1280x1920/79a4ec1f215c5b276b23f34dbad97dcda1634059.gifv" alt="animated" />  
-</p>
 <p align="center">
 ✩ - she/they | autistic + ADHD | - ✩
 <p align="center">
 ;; bunsen [bunsen is a beast] fictionkin !! ;;
 </p>
 <p align="center">
-✩ - i'm usually near docks or at mafias/RPs on ponytown if you need me !! (semi inactive right now)
+✩ - i'm usually near docks or at mafias/RPs on ponytown if you need me !! (semi inactive?? honestly idk anymore)
 </p>
 <p align="center">
   <img src="https://i.imgur.com/gAsiDHa.gif" alt="animated" /> <img src="https://i.imgur.com/RvEE447.gif" alt="animated" /> <img src="https://i.imgur.com/CIpJM8q.gif" alt="animated" /> <img src="https://i.imgur.com/UY1FRvR.gif" alt="animated" />
