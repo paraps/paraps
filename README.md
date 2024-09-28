@@ -1,12 +1,11 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/23b8f1a5eed68cc069a3deb19419d16f/97b51e36be483cf5-d8/s1280x1920/dd742616caad3a9e2443685e7b65fa9d9d13abbf.pnj" alt="animated" />  
+  <img src="https://64.media.tumblr.com/a224ab99e8d4da2a2366978603561f97/784e66afb200da97-28/s2048x3072/ed4e4c40def488ce8dd34d0f9a27472665b6d4b8.pnj" alt="animated" />  
 
 <p align="center">
   <img src="https://files.catbox.moe/gv5n76.gif" alt="animated" />
 </p>
-  <p align="center">
-<img src="https://files.catbox.moe/usxdeh.gif" alt="animated" />
-</p>
+
+
 <p align="center">
   <img src="https://64.media.tumblr.com/08c4c87a30da22f2de747e7efb3fcb2f/8ac72bb49761ea20-30/s1280x1920/79a4ec1f215c5b276b23f34dbad97dcda1634059.gifv" alt="animated" />  
 </p>
@@ -68,5 +67,5 @@ ___
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/68d9e1ed634a751a9080a20fe5348da8/97b51e36be483cf5-94/s1280x1920/ab570358552bb257b2a76bb022411badbed6c87f.pnj" alt="animated" />  
+  <img src="https://64.media.tumblr.com/cc1377fdadc21cdee5d48fce51672530/784e66afb200da97-1c/s2048x3072/9ea0e1f727369d5362fdbeeeeaf065f1d5976a79.pnj" alt="animated" />  
 </p>
