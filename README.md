@@ -38,19 +38,19 @@ anyways here's some of my bunsen stamps lol
 ___
 ### PONYTOWN STATUSES !
 <p align="center">
-   - i don't think i really use this one-
+  🟢 - i don't think i really use this one-
 </p>
 <p align="center">
-   - the status i usually use, i'm open for interactions!!
+  💬 - the status i usually use, i'm open for interactions!!
 </p>
 <p align="center">
-   - i only use this whenever i'm currently in a RP,, when i remember to use it atleast
+  🎭 - i only use this whenever i'm currently in a RP,, when i remember to use it atleast
 </p>
 <p align="center">
-   - i rarely use this, but i sometimes use it when i'm AFK
+  🌙 - i rarely use this, but i sometimes use it when i'm AFK
 </p>
 <p align="center">
-   - i'm in a bad mood, please interact with caution. 
+  ⛔ - i'm in a bad mood, please interact with caution. 
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/91f25958294309deff7b1a3e5dd62426/f49d6b66a0a6f381-59/s400x600/62f21cd90436d53fbab4f6d5cb2b56897c5992a0.pnj"/>
