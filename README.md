@@ -7,7 +7,7 @@
 
 
 <p align="center">
-✩ - she/they | autistic + ADHD | - ✩
+✩ - she/they | autistic + ADHD - ✩
 <p align="center">
 ;; bunsen [bunsen is a beast] fictionkin !! ;;
 </p>
