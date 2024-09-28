@@ -8,7 +8,7 @@
 <img src="https://files.catbox.moe/usxdeh.gif" alt="animated" />
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/b91e9796a035f97a2da5d89e0c835681/tumblr_inline_ml1c6aUbyo1qz4rgp.gif" alt="animated" />  
+  <img src="https://64.media.tumblr.com/08c4c87a30da22f2de747e7efb3fcb2f/8ac72bb49761ea20-30/s1280x1920/79a4ec1f215c5b276b23f34dbad97dcda1634059.gifv" alt="animated" />  
 </p>
 <p align="center">
 ✩ - she/they | autistic + ADHD | - ✩
@@ -34,7 +34,7 @@
   <img src="https://i.imgur.com/Z4mQxkN.gif" alt="animated" /> <img src="https://i.imgur.com/AxdXzuU.gif" alt="animated" /> <img src="https://i.imgur.com/FjKv2cw.gif" alt="animated" /> <img src="https://i.imgur.com/zCQ3dZj.gif" alt="animated" />
 </p>
 <p align="center">
-also here's my collection of bunsen stamps that i made,, you're free to use them if you want !!
+anyways here's some of my bunsen stamps lol
 </p>
 
 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%234363F3&title_bg=%23FF48E9&icon=&icon_color=%236383FF&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
@@ -42,22 +42,22 @@ also here's my collection of bunsen stamps that i made,, you're free to use them
 ___
 ### PONYTOWN STATUSES !
 <p align="center">
-  🟢 - i don't think i really use this one-
+   - i don't think i really use this one-
 </p>
 <p align="center">
-  💬 - the status i usually use, i'm open for interactions!!
+   - the status i usually use, i'm open for interactions!!
 </p>
 <p align="center">
-  🎭 - i only use this whenever i'm currently in a RP,, when i remember to use it atleast
+   - i only use this whenever i'm currently in a RP,, when i remember to use it atleast
 </p>
 <p align="center">
-  🌙 - i rarely use this, but i sometimes use it when i'm AFK
+   - i rarely use this, but i sometimes use it when i'm AFK
 </p>
 <p align="center">
-  ⛔️ - i'm in a bad mood, please interact with caution. 
+   - i'm in a bad mood, please interact with caution. 
 </p>
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery22/67e05689.png"/>
+<img src="https://64.media.tumblr.com/91f25958294309deff7b1a3e5dd62426/f49d6b66a0a6f381-59/s400x600/62f21cd90436d53fbab4f6d5cb2b56897c5992a0.pnj"/>
 </p>
 
 <p align="center">
