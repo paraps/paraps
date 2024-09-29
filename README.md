@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/a224ab99e8d4da2a2366978603561f97/784e66afb200da97-28/s2048x3072/ed4e4c40def488ce8dd34d0f9a27472665b6d4b8.pnj" alt="animated" />  
 
 <p align="center">
-  <img src="https://files.catbox.moe/utn5kd.png" />
+  <img src="https://files.catbox.moe/kczbin.png" />
 </p>
 
 
