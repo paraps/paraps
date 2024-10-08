@@ -9,10 +9,10 @@
 <p align="center">
 ✩ - she/they | autistic + ADHD - ✩
 <p align="center">
-;; fictionkin of bunsen from bunsen is a beast !! ;;
+;; bunsen fictionkin !! (doubles are OK!) ;;
 </p>
 <p align="center">
-✩ - i'm usually near docks or the market if you need me! (semi inactive?? idk anymore)
+✩ - i'm usually near docks or the market if you need me! (semi inactive??)
 </p>
 
 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%234363F3&title_bg=%23FF48E9&icon=&icon_color=%236383FF&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
