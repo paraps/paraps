@@ -9,7 +9,7 @@
 <p align="center">
 ✩ - she/they | autistic + ADHD - ✩
 <p align="center">
-;; bunsen fictionkin !! (doubles are OK!) ;;
+;; bunsen fictionkin !! ;;
 </p>
 <p align="center">
 ✩ - hyperfixating on bunsen is a beast and poofesure!!
