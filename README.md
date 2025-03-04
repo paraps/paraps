@@ -12,7 +12,7 @@
 ;; bunsen fictionkin !! ;;
 </p>
 <p align="center">
-✩ - hyperfixating on bunsen is a beast and poofesure!!
+✩ - current hyperfixations: bunsen is a beast, sanjay and craig, poofesure
 </p>
 
 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%234363F3&title_bg=%23FF48E9&icon=&icon_color=%236383FF&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
