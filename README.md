@@ -7,10 +7,7 @@
 
 
 <p align="center">
-✩ - she/they | autistic + ADHD - ✩
-<p align="center">
-;; bunsen fictionkin !! ;;
-</p>
+✩ - she/they | adult | autistic + ADHD - ✩
 <p align="center">
 ✩ - current hyperfixations: bunsen is a beast, poofesure, sanjay and craig
 </p>
