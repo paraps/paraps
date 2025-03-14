@@ -1,22 +1,22 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/a224ab99e8d4da2a2366978603561f97/784e66afb200da97-28/s2048x3072/ed4e4c40def488ce8dd34d0f9a27472665b6d4b8.pnj" alt="animated" />  
+  <img src="https://64.media.tumblr.com/b0af91ed1cc36ed6c5126c3cfeca2415/ffee557fdd09bb25-b1/s1280x1920/b8bad39094fdefe833528cff9359df975a5cce03.pnj" alt="animated" />  
 
 <p align="center">
-  <img src="https://files.catbox.moe/kczbin.png" />
+  <img src="https://i.imgur.com/JYQ0SZA.png" />
 </p>
 
 
 <p align="center">
 ✩ - she/they | adult | autistic + ADHD - ✩
 <p align="center">
-✩ - current hyperfixations: bunsen is a beast, poofesure, sanjay and craig
+✩ - current hyperfixations: sanjay and craig, poofesure, bunsen is a beast
 </p>
 
-[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%234363F3&title_bg=%23FF48E9&icon=&icon_color=%236383FF&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
+[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%2347A871&title_bg=%236EF554&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
 
 ___
 <p align="center">
-  <img src="https://i.imgur.com/AxdXzuU.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://i.imgur.com/05EYrJX.gif" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
+  <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://i.imgur.com/05EYrJX.gif" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://external-media.spacehey.net/media/sT7VMFPqxq0ToNLccsp1D1af06B54loPc0kHOtgTni5U=/https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
@@ -31,22 +31,22 @@ ___
   <img src="https://64.media.tumblr.com/75a00878d75d0abdf1b72ee1d8fb2c49/81b1658f1f82e7d7-00/s100x200/a22b1c745e79138601cad40cd7387487c29fd733.gifv" alt="animated" /> <img src="https://64.media.tumblr.com/907a337a89860f243b2eabb3b9857376/6c4e5e9d66afbcdf-12/s100x200/5fa476697cb9ce69209bfdd9ac363432a0a1585b.gifv" alt="animated" /> <img src="https://64.media.tumblr.com/168c7366498d7edd662bf75059c96a35/56a5919cdc260a12-bf/s100x200/c1b8867d5e3bb623323cc98e792723c8105cb769.pnj" alt="animated" /> <img src="https://orig02.deviantart.net/7403/f/2007/200/3/5/being_childish_stamp_by_creativeness.gif" alt="animated" />
 </p>
 <p align="center">
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e7b1468-20d3-4cba-b4df-121dc61bfd79/davzgdc-a6b125b2-c394-4db6-8a5d-0bebd9df4929.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlN2IxNDY4LTIwZDMtNGNiYS1iNGRmLTEyMWRjNjFiZmQ3OVwvZGF2emdkYy1hNmIxMjViMi1jMzk0LTRkYjYtOGE1ZC0wYmViZDlkZjQ5MjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9cy3qf3XMyub7VSxY0JnGfVmWzyh7Q4aRwUI9Kn0nmk" alt="animated" />  
-</p>
-<p align="center">
   <img src="https://i.imgur.com/ZMIXbw5.png" alt="animated" />  
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/0822ea3351dc6078c8be2f1431de51d0/ad68c02a7af56974-0b/s540x810/24c800ccd30b060d9b67e562898ecc0bef7dee2c.gifv"/>
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e7b1468-20d3-4cba-b4df-121dc61bfd79/davzgdc-a6b125b2-c394-4db6-8a5d-0bebd9df4929.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlN2IxNDY4LTIwZDMtNGNiYS1iNGRmLTEyMWRjNjFiZmQ3OVwvZGF2emdkYy1hNmIxMjViMi1jMzk0LTRkYjYtOGE1ZC0wYmViZDlkZjQ5MjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9cy3qf3XMyub7VSxY0JnGfVmWzyh7Q4aRwUI9Kn0nmk" alt="animated" />  
+</p>
+<p align="center">
+ <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
 
 <p align="center">
- <img src="https://i.imgur.com/WttVLxp.png"/>
+ <img src="https://i.imgur.com/LrISoJv.png"/>
 </p>
 <p align="center">
 <img src="https://pix.crd.co/assets/images/gallery08/51792668.gif"/> <img src="https://xyz.crd.co/assets/images/gallery02/e35631ec.gif"/><img src="https://xyz.crd.co/assets/images/gallery02/b38bba44.gif"/> <img src="https://goldenkamuy.crd.co/assets/images/gallery22/f5aa100e.gif"/>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/cc1377fdadc21cdee5d48fce51672530/784e66afb200da97-1c/s2048x3072/9ea0e1f727369d5362fdbeeeeaf065f1d5976a79.pnj" alt="animated" />  
+  <img src="https://64.media.tumblr.com/92ac85fb229edfc5e74512d0638ca300/ffee557fdd09bb25-aa/s1280x1920/22f76b3528a66330f42049f6e01d5ae5d0dbd3ef.pnj" alt="animated" />  
 </p>
