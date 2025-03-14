@@ -12,7 +12,7 @@
 ✩ - current hyperfixations: sanjay and craig, poofesure, bunsen is a beast
 </p>
 <p align="center">
-✩ - sanjay patel fictionkin!
+✩ - sanjay (S&C) fictionkin! - ✩
 </p>
 
 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fparaps&count_bg=%2347A871&title_bg=%236EF554&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
@@ -47,7 +47,7 @@ ___
  <img src="https://i.imgur.com/LrISoJv.png"/>
 </p>
 <p align="center">
-<img src="https://pix.crd.co/assets/images/gallery08/51792668.gif"/> <img src="https://xyz.crd.co/assets/images/gallery02/e35631ec.gif"/><img src="https://xyz.crd.co/assets/images/gallery02/b38bba44.gif"/> <img src="https://goldenkamuy.crd.co/assets/images/gallery22/f5aa100e.gif"/>
+<img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://files.catbox.moe/f3q9xu.gif"/> <img src="https://files.catbox.moe/lvzg1n.gif"/> <img src="https://files.catbox.moe/mod3rg.png"/>
 </p>
 
 <p align="center">
