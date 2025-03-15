@@ -44,7 +44,7 @@ ___
 </p>
 
 <p align="center">
- <img src="https://i.imgur.com/LrISoJv.png"/><img src="https://i.imgur.com/8l9AHmy.png"/>
+ <img src="https://i.imgur.com/LrISoJv.png"/>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://files.catbox.moe/f3q9xu.gif"/> <img src="https://files.catbox.moe/lvzg1n.gif"/> <img src="https://files.catbox.moe/mod3rg.png"/>
