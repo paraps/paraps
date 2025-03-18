@@ -9,7 +9,7 @@
 <p align="center">
 ✩ - she/they | adult | autistic + ADHD - ✩
 <p align="center">
-✩ - current hyperfixations: sanjay and craig, poofesure, bunsen is a beast
+✩ - current hyperfixations: sanjay and craig, poofesure
 </p>
 <p align="center">
 ✩ - sanjay patel (S&C) fictionkin! - ✩
