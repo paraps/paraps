@@ -9,10 +9,10 @@
 <p align="center">
 ✩ - she/they | adult | autistic + ADHD - ✩
 <p align="center">
-✩ - current hyperfixations: sanjay and craig, poofesure
+✩ - current hyperfixation: sanjay and craig - ✩
 </p>
 <p align="center">
-✩ - sanjay patel (S&C) fictionkin! - ✩
+<img src="https://i.imgur.com/o4oKXWT.jpeg" alt="animated" />
 </p>
 
 
