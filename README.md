@@ -12,7 +12,7 @@
 ✩ - current hyperfixation: sanjay and craig - ✩
 </p>
 <p align="center">
-✩ - basic DNI criteria; forsaken fans IWEC (unless already friends) - ✩
+✩ - basic DNI criteria; forsaken fans IWC (unless already friends) - ✩
 </p>
 <p align="center">
 <img src="https://i.imgur.com/o4oKXWT.jpeg" alt="animated" />
