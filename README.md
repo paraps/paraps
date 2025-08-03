@@ -14,10 +14,6 @@
 <p align="center">
 ✩ - basic DNI criteria - ✩
 </p>
-<p align="center">
-<img src="https://i.imgur.com/o4oKXWT.jpeg" alt="animated" />
-</p>
-
 
 ___
 <p align="center">
