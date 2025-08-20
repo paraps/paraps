@@ -7,8 +7,6 @@
 
 
 <p align="center">
-✩ - she/they | adult | autistic + ADHD - ✩
-<p align="center">
 ✩ - current hyperfixation: sanjay and craig - ✩
 </p>
 <p align="center">
