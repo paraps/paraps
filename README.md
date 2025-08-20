@@ -17,7 +17,7 @@
 
 ___
 <p align="center">
-  <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://i.imgur.com/05EYrJX.gif" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
+  <img src="https://i.imgur.com/qzxUKvu.png" alt="animated" /> <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://external-media.spacehey.net/media/sT7VMFPqxq0ToNLccsp1D1af06B54loPc0kHOtgTni5U=/https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
