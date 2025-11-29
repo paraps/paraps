@@ -46,12 +46,7 @@
   wip
 </p>
 </details>
-<details><summary>buttons!</summary>
-<p align="center">
-  wip
-</p>
-</details>
-<details><summary>userbars!</summary>
+<details><summary>stamps + buttons!</summary>
 <p align="center">
   wip
 </p>
