@@ -12,10 +12,14 @@
 <p align="center">
 ✩ - basic DNI criteria - ✩
 </p>
+<p align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=paraps&color=brightgreen)
+</p>
 
-![](https://komarev.com/ghpvc/?username=paraps&color=brightgreen)
-
-___
+<p align="center">
+ <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
+</p>
 <p align="center">
   <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
@@ -37,6 +41,21 @@ ___
 <p align="center">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e7b1468-20d3-4cba-b4df-121dc61bfd79/davzgdc-a6b125b2-c394-4db6-8a5d-0bebd9df4929.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlN2IxNDY4LTIwZDMtNGNiYS1iNGRmLTEyMWRjNjFiZmQ3OVwvZGF2emdkYy1hNmIxMjViMi1jMzk0LTRkYjYtOGE1ZC0wYmViZDlkZjQ5MjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9cy3qf3XMyub7VSxY0JnGfVmWzyh7Q4aRwUI9Kn0nmk" alt="animated" />  
 </p>
+<details><summary>blinkies!</summary>
+<p align="center">
+  wip
+</p>
+</details>
+<details><summary>buttons!</summary>
+<p align="center">
+  wip
+</p>
+</details>
+<details><summary>userbars!</summary>
+<p align="center">
+  wip
+</p>
+</details>
 <p align="center">
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
