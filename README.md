@@ -13,6 +13,8 @@
 ✩ - basic DNI criteria - ✩
 </p>
 
+![](https://komarev.com/ghpvc/?username=paraps&color=brightgreen)
+
 ___
 <p align="center">
   <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
