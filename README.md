@@ -12,10 +12,8 @@
 <p align="center">
 ✩ - basic DNI criteria - ✩
 </p>
-<p align="center">
-  
-  ![](https://komarev.com/ghpvc/?username=paraps&color=brightgreen)
-</p>
+
+[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
 <p align="center">
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
