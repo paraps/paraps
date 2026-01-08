@@ -7,7 +7,7 @@
 
 
 <p align="center">
-✩ - current hyperfixation: sanjay and craig - ✩
+✩ - current hyperfixation(s): sanjay and craig, face's music party, warioware - ✩
 </p>
 <p align="center">
 ✩ - basic DNI criteria - ✩
