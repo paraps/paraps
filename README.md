@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/b0af91ed1cc36ed6c5126c3cfeca2415/ffee557fdd09bb25-b1/s1280x1920/b8bad39094fdefe833528cff9359df975a5cce03.pnj" alt="animated" />  
 
 <p align="center">
-  <img src="https://i.imgur.com/JYQ0SZA.png" />
+  <img src="https://files.catbox.moe/lo32em.png" />
 </p>
 
 
@@ -22,7 +22,7 @@ NOTE: i am currently taking an indefinite break from answering and looking at gi
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://i.imgur.com/GpeicSu.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
+  <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://external-media.spacehey.net/media/sT7VMFPqxq0ToNLccsp1D1af06B54loPc0kHOtgTni5U=/https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
@@ -37,7 +37,7 @@ NOTE: i am currently taking an indefinite break from answering and looking at gi
   <img src="https://64.media.tumblr.com/75a00878d75d0abdf1b72ee1d8fb2c49/81b1658f1f82e7d7-00/s100x200/a22b1c745e79138601cad40cd7387487c29fd733.gifv" alt="animated" /> <img src="https://64.media.tumblr.com/907a337a89860f243b2eabb3b9857376/6c4e5e9d66afbcdf-12/s100x200/5fa476697cb9ce69209bfdd9ac363432a0a1585b.gifv" alt="animated" /> <img src="https://64.media.tumblr.com/c2185c1d6114e604b4816f30e52c55ef/9739519dc4328965-96/s100x200/51716e5552a9329b39a67ca3bfc6eff56491f67a.webp" alt="animated" /> <img src="https://orig02.deviantart.net/7403/f/2007/200/3/5/being_childish_stamp_by_creativeness.gif" alt="animated" />
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/ZMIXbw5.png" alt="animated" />  
+  <img src="https://files.catbox.moe/o6z58c.png" alt="animated" />  
 </p>
 <p align="center">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e7b1468-20d3-4cba-b4df-121dc61bfd79/davzgdc-a6b125b2-c394-4db6-8a5d-0bebd9df4929.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlN2IxNDY4LTIwZDMtNGNiYS1iNGRmLTEyMWRjNjFiZmQ3OVwvZGF2emdkYy1hNmIxMjViMi1jMzk0LTRkYjYtOGE1ZC0wYmViZDlkZjQ5MjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9cy3qf3XMyub7VSxY0JnGfVmWzyh7Q4aRwUI9Kn0nmk" alt="animated" />  
@@ -59,7 +59,7 @@ NOTE: i am currently taking an indefinite break from answering and looking at gi
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
 <p align="center">
-<img src="https://i.imgur.com/oYSxtxs.gif"/>
+<img src="https://files.catbox.moe/aqluo5.gif"/>
 </p>
 
 <p align="center">
