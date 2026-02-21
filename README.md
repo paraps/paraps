@@ -13,7 +13,7 @@
 ✩ - basic DNI criteria - ✩
 </p>
 <p align="center">
-NOTE: i am currently taking an indefinite break from answering and looking at gimmicks!!
+NOTE: i am currently taking an indefinite break from answering gimmicks (i still look at them though)
 </p>
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
