@@ -21,6 +21,9 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
+    --
+  </p>
+  <p align="left">
   ✩ - hugh morris (tomodachi life: living the dream)
   </p>
   <p align="left">
