@@ -19,7 +19,23 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 <details><summary>DNI</summary>
   ✩ - basic DNI criteria, pro/darkshippers, i guess just don't be rude idk
 </details>
-
+<details><summary>FICTIONKINS</summary>
+  <p align="left">
+  ✩ - hugh morris (tomodachi life: living the dream)
+  </p>
+  <p align="left">
+  ✩ - sanjay patel (sanjay and craig)
+  </p>
+  <p align="left">
+  ✩ - face (face's music party)
+  </p>
+  <p align="left">
+  ✩ - bunsen (bunsen is a beast)
+  </p>
+  <p align="left">
+  ✩ - orbulon (warioware)
+  </p>
+</details>
 <p align="center">
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
