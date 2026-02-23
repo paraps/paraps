@@ -17,7 +17,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
 <details><summary>DNI</summary>
-  ✩ - basic DNI criteria, pro/darkshippers, i guess just don't be rude idk
+  ✩ - basic DNI criteria, pro/darkshippers, you make suggestive/NSFW jokes often (just don't bring them up near me), i guess just don't be rude idk
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
