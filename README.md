@@ -17,7 +17,18 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
 <details><summary>DNI</summary>
-  ✩ - basic DNI criteria, pro/darkshippers or just anything of that sort, i guess just don't be rude idk
+  <p align="left">
+  ✩ - basic DNI criteria
+  </p>
+  <p align="left">
+  ✩ - pro/darkshippers or just anything of that sort
+  </p>
+  <p align="left">
+  ✩ - if you use suggestive/NSFW jokes often you're on kinda thin ice
+  </p>
+  <p align="left">
+  ✩ - i guess just don't be rude idk
+  </p>
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
@@ -40,6 +51,9 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   </p>
   <p align="left">
     --
+  </p>
+  <p align="left">
+    doubles OK, but please ask to interact if you're a hugh morris kin
   </p>
   <p align="left">
     these are just my highest kins, my full kinlist is on my pronouns . cc!
