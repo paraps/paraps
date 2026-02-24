@@ -63,7 +63,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/2ad7c15ba595a3f12bc542739fe44635/f988212ba3c640ad-47/s100x200/964ecaff7d876106b506b596a9e71f109be9200b.gifv" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
+  <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/38088aca9094649362a4bcbef70d0c0b/607814a73fba414e-44/s100x200/85674d4aaf947486520a9d8e06b396866eacbee7.jpg" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://external-media.spacehey.net/media/sT7VMFPqxq0ToNLccsp1D1af06B54loPc0kHOtgTni5U=/https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
