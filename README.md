@@ -26,8 +26,8 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   <p align="left">
   ✩ - if you use suggestive/NSFW jokes often you're on kinda thin ice
   </p>
-  <p align="left">
-  ✩ - i guess just don't be rude idk
+    <p align="left">
+  ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
