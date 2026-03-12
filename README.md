@@ -81,6 +81,9 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e7b1468-20d3-4cba-b4df-121dc61bfd79/davzgdc-a6b125b2-c394-4db6-8a5d-0bebd9df4929.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNlN2IxNDY4LTIwZDMtNGNiYS1iNGRmLTEyMWRjNjFiZmQ3OVwvZGF2emdkYy1hNmIxMjViMi1jMzk0LTRkYjYtOGE1ZC0wYmViZDlkZjQ5MjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9cy3qf3XMyub7VSxY0JnGfVmWzyh7Q4aRwUI9Kn0nmk" alt="animated" />  
 </p>
 <details><summary>blinkies!</summary>
+  <p align="center">
+  <img src="https://64.media.tumblr.com/770da38f20b4c571a3066c8ea8e67c9c/3c4cb11a7b62132e-74/s250x400/151e3572f175d72f69d93d0352261852c3091a84.gifv" /><img src="https://64.media.tumblr.com/f897f8ba73c43801e2e7610d14d11021/3c4cb11a7b62132e-bb/s250x400/5f605886cb2e14cc681d9a0946e2c07ece8836fe.gifv" /><img src="https://64.media.tumblr.com/1a60749efa6692a0987b5b45acd4811b/3c4cb11a7b62132e-dc/s250x400/d6a96151212b7e3afc882abed8e86d6a20a0cbd4.gifv" /><img src="https://64.media.tumblr.com/d346ae366e328ccff2935a9eb8ee5656/3c4cb11a7b62132e-6b/s250x400/bbb9e0eabd285d0d94682f91f41307e49997f056.gifv" /><img src="https://64.media.tumblr.com/18e3286e8682bd9fced9b6da2cfba1f3/9edd4caf7a407676-1d/s250x400/f0d4f77d8c736a1796c3bf6b93f3e8838faca335.gifv" /><img src="https://64.media.tumblr.com/49481981951ab56db7c87fe031c880d4/9edd4caf7a407676-c2/s250x400/9e3378d267a719fa2e67fd2b8121d605dfeca75a.gifv" />
+</p>
 <p align="center">
   wip
 </p>
