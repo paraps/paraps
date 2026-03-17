@@ -27,7 +27,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - if you use suggestive/NSFW jokes often near me you're on kinda thin ice
   </p>
    <p align="left">
-  ✩ - if you're against fictionkins, therians, otherkins, etc.
+  ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
     <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality
@@ -53,7 +53,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - beef boss (poofesure) ; ID kin
   </p>
   <p align="left">
-  ✩ - jack frew (BFDIA) ; high kin
+  ✩ - jack frew (BFDIA) ; high kin, permashiftflux
   </p>
   <p align="left">
   ✩ - darwin watterson (the amazing world of gumball) ; medium kin
