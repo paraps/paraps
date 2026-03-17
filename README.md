@@ -24,7 +24,10 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - pro/darkshippers or just anything of that sort
   </p>
   <p align="left">
-  ✩ - if you use suggestive/NSFW jokes often you're on kinda thin ice
+  ✩ - if you use suggestive/NSFW jokes often near me you're on kinda thin ice
+  </p>
+   <p align="left">
+  ✩ - against fictionkins, therians, otherkins, etc.
   </p>
     <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality
