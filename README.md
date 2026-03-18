@@ -53,7 +53,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - beef boss (poofesure) ; ID kin
   </p>
   <p align="left">
-  ✩ - jack frew (BFDIA) ; high kin, permashiftflux
+  ✩ - jack frew (BFDIA) ; ID kin, permashiftflux
   </p>
   <p align="left">
   ✩ - darwin watterson (the amazing world of gumball) ; medium kin
