@@ -56,6 +56,9 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - jack frew (BFDIA) ; high kin, permashiftflux
   </p>
   <p align="left">
+  ✩ - beef boss (poofesure) ; high kin
+  </p>
+  <p align="left">
   ✩ - darwin watterson (the amazing world of gumball) ; medium kin
   </p>
   <p align="left">
