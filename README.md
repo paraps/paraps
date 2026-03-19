@@ -40,6 +40,9 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   <p align="left">
   ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
   </p>
+    <p align="left">
+  ✩ - jack frew (BFDIA) ; ID kin, permashiftflux
+  </p>
   <p align="left">
   ✩ - bunsen (bunsen is a beast) ; ID kin
   </p>
@@ -50,10 +53,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   ✩ - orbulon (warioware) ; ID kin
   </p>
   <p align="left">
-  ✩ - beef boss (poofesure) ; ID kin
-  </p>
-  <p align="left">
-  ✩ - jack frew (BFDIA) ; high kin, permashiftflux
+  ✩ - beef boss (poofesure) ; high kin
   </p>
   <p align="left">
   ✩ - beef boss (poofesure) ; high kin
