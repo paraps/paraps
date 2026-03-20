@@ -46,14 +46,14 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   <p align="left">
   ✩ - bunsen (bunsen is a beast) ; ID kin
   </p>
-   <p align="left">
-  ✩ - face (face's music party) ; ID kin
-  </p>
     <p align="left">
   ✩ - orbulon (warioware) ; ID kin
   </p>
   <p align="left">
   ✩ - beef boss (poofesure) ; high kin
+  </p>
+     <p align="left">
+  ✩ - face (face's music party) ; high kin
   </p>
   <p align="left">
   ✩ - darwin watterson (the amazing world of gumball) ; medium kin
