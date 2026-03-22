@@ -35,19 +35,19 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
-  ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
-  </p>
-  <p align="left">
   ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
   </p>
     <p align="left">
   ✩ - jack frew (BFDIA) ; ID kin, permashiftflux
   </p>
   <p align="left">
+  ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
+  </p>
+  <p align="left">
   ✩ - bunsen (bunsen is a beast) ; ID kin
   </p>
     <p align="left">
-  ✩ - orbulon (warioware) ; ID kin
+  ✩ - orbulon (warioware) ; high kin
   </p>
   <p align="left">
   ✩ - beef boss (poofesure) ; high kin
