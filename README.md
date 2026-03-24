@@ -35,10 +35,10 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
-  ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
+  ✩ - jack frew (BFDIA) ; ID kin, permashift
   </p>
-    <p align="left">
-  ✩ - jack frew (BFDIA) ; ID kin, permashiftflux
+  <p align="left">
+  ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
   </p>
   <p align="left">
   ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
