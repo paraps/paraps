@@ -80,7 +80,7 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   --
   </p>
   <p align="left">
-  doubles OK for most of my kins, hugh morris doubles are iffy/selective.
+  doubles OK!!
   </p>
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
@@ -123,6 +123,13 @@ NOTE: i am currently taking an indefinite break from answering gimmicks (i still
   <img src="https://64.media.tumblr.com/8c876c26fd43e94d15851ad5954477c4/d5c82915da2648ce-04/s1280x1920/e167370bb8f42fca93502aa79ec12cece3dbc90b.png" alt="animated" /><img src="https://64.media.tumblr.com/4e053592a0f79499a2b2815e16a32c83/a1da1680c0176449-34/s100x200/7e06a21bc4fef447b968185636db063f580232e1.gifv" alt="animated" /><img src="https://crystal.nekoweb.org/layout/assets/buttons/youmad.gif" alt="animated" /><img src="https://64.media.tumblr.com/c2bca9f766d704894631aa65b1f0db63/67425fd3a282e3d1-7e/s100x200/03334069862b923fa57cafbccca2c6dbed80bd4c.gif" alt="animated" /><img src="https://64.media.tumblr.com/865e39203e0c54abc2d6ba716d729c84/c1af6f30d71a7f85-67/s100x200/f90ebc971f56db5e8db8b2b77d9568412ee8f2d9.gifv" alt="animated" /><img src="https://64.media.tumblr.com/eef36c110f88785d45e7b556454d5bc4/accdd3da1f3b1740-be/s100x200/643183cf33a6ccccd5c7ece49404dbb032bff88d.pnj" alt="animated" /><img src="https://controlcoreangel.neocities.org/images/graphics/web/buttons/tumblr_8bfd6d206a4a90976dde55f7f49f3496_16ca4fe4_100.gif" alt="animated" /><img src="https://capstasher.neocities.org/88x31Buttons/monalisaoverdrive.png" alt="animated" /><img src="https://files.catbox.moe/p7o5me.jpg" alt="animated" /><img src="https://adriansblinkiecollection.neocities.org/buttons/a10.png" alt="animated" /><img src="https://adriansblinkiecollection.neocities.org/buttons/e28.gif"/><img src="https://64.media.tumblr.com/feeb3be81a88fcf26cda43e34269b78e/bbd88ed6bfa89fe4-e2/s100x200/78fc37a26df7d55dc5a53a24dfcc91ec38c88573.gifv"/><img src="https://adriansblinkiecollection.neocities.org/buttons/a122.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/e19.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/b2.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/e10.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/e3.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/d14.gif"/><img src="https://i.imgur.com/TW8zDRR.png"/><img src="https://i.imgur.com/X5PyHR1.png"/>
 </p>
 </p>
+</details>
+<details><summary>ooh you wanna click this so baaaad</summary>
+
+
+https://github.com/user-attachments/assets/9ef7a26b-5ca6-4d08-8319-a4ed4c1bcf42
+
+
 </details>
 <p align="center">
  <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
