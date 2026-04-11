@@ -7,7 +7,7 @@
 
 
 <p align="center">
-✩ - current hyperfixation(s): sanjay and craig, mii games - ✩
+✩ - current hyperfixation(s): sanjay and craig, battle for dream island, mii games - ✩
 </p>
 
 <p align="center">
