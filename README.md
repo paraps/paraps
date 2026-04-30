@@ -2,7 +2,7 @@
   <img src="https://i.imgur.com/4jmJBFj.png" alt="animated" />  
 
 <p align="center">
-  <img src="https://files.catbox.moe/lo32em.png" />
+  <img src="https://i.imgur.com/zEdl0wN.png" />
 </p>
 
 
