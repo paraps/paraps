@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/b0af91ed1cc36ed6c5126c3cfeca2415/ffee557fdd09bb25-b1/s1280x1920/b8bad39094fdefe833528cff9359df975a5cce03.pnj" alt="animated" />  
+  <img src="https://i.imgur.com/4jmJBFj.png" alt="animated" />  
 
 <p align="center">
   <img src="https://files.catbox.moe/lo32em.png" />
@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-this is currently going through a revamp!! will get to it eventually!
+this is currently going through a revamp!!
 </p>
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
@@ -85,7 +85,7 @@ this is currently going through a revamp!! will get to it eventually!
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
 <p align="center">
- <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
+ <img src="https://i.imgur.com/OFfaFiC.png"/>
 </p>
 <p align="center">
   <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/38088aca9094649362a4bcbef70d0c0b/607814a73fba414e-44/s100x200/85674d4aaf947486520a9d8e06b396866eacbee7.jpg" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
@@ -132,19 +132,16 @@ https://github.com/user-attachments/assets/9ef7a26b-5ca6-4d08-8319-a4ed4c1bcf42
 
 </details>
 <p align="center">
- <img src="https://64.media.tumblr.com/450dd7fccc2dc5c13093e92040124066/81bdf654311aa928-3a/s1280x1920/6c6efb7ac1a01b4e924a369d9c95ece7472c1e7f.gifv"/>
+ <img src="https://i.imgur.com/OFfaFiC.png"/>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/aqluo5.gif"/>
+<img src="https://i.imgur.com/8nXZRwH.gif"/>
 </p>
 
-<p align="center">
- <img src="https://i.imgur.com/LrISoJv.png"/>
-</p>
 <p align="center">
 <img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://files.catbox.moe/f3q9xu.gif"/> <img src="https://files.catbox.moe/lvzg1n.gif"/> <img src="https://files.catbox.moe/mod3rg.png"/>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/92ac85fb229edfc5e74512d0638ca300/ffee557fdd09bb25-aa/s1280x1920/22f76b3528a66330f42049f6e01d5ae5d0dbd3ef.pnj" alt="animated" />  
+  <img src="https://i.imgur.com/iswV3Jv.png" alt="animated" />  
 </p>
