@@ -142,7 +142,7 @@ https://github.com/user-attachments/assets/9ef7a26b-5ca6-4d08-8319-a4ed4c1bcf42
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://files.catbox.moe/f3q9xu.gif"/> <img src="https://files.catbox.moe/lvzg1n.gif"/> <img src="https://files.catbox.moe/mod3rg.png"/>
+<img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114"/> <img src="https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114"/> <img src="https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114"/> <img src="https://files.catbox.moe/mod3rg.png"/>
 </p>
 
 <p align="center">
