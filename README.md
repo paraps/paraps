@@ -9,6 +9,9 @@
 <p align="center">
 ✩ - current hyperfixation(s): sanjay and craig, battle for dream island, mii games - ✩
 </p>
+<p align="center">
+✩ - THE jack frew (I Can Make A Difference / BFDI) fictionkin!! - ✩
+</p>
 
 <p align="center">
 this is currently going through a revamp!!
