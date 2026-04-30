@@ -10,7 +10,9 @@
 ✩ - current hyperfixation(s): sanjay and craig, battle for dream island, mii games - ✩
 </p>
 
-
+<p align="center">
+this is currently going through a revamp!! will get to it eventually!
+</p>
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
 <details><summary>DNI</summary>
