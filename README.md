@@ -13,9 +13,6 @@
 ✩ - THE jack frew (I Can Make A Difference / BFDI) fictionkin!! - ✩
 </p>
 
-<p align="center">
-this is currently going through a revamp!!
-</p>
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
