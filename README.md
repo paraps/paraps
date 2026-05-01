@@ -4,7 +4,9 @@
 <p align="center">
   <img src="https://i.imgur.com/1BMwozo.png" />
 </p>
-
+<p align="center">
+  <img src="https://i.imgur.com/mxaGtRp.gif" />
+</p>
 
 <p align="center">
 ✩ - current hyperfixation(s): battle for dream island, sanjay and craig, mii games - ✩
