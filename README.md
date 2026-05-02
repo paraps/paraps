@@ -12,7 +12,7 @@
 ✩ - current hyperfixation(s): battle for dream island, sanjay and craig, mii games - ✩
 </p>
 <p align="center">
-✩ - THE jack frew (BFDI / I Can Make A Difference) fictionkin!! - ✩
+✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
 </p>
 <p align="center">
 ✩ - sign my atabook and send gimmicks to my strawpage!! - ✩
@@ -42,7 +42,7 @@
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
-  ✩ - jack frew (BFDIA) ; ID kin, permashift
+  ✩ - jack frew (BFDI/ICMAD) ; ID kin, permashift
   </p>
   <p align="left">
   ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
