@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island, sanjay and craig, mii games - ✩
+✩ - current hyperfixation(s): battle for dream island / pre-BFDI content (ICMAD, WVGM, XFOHV), sanjay and craig, mii games - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -18,7 +18,7 @@
 ✩ - sign my atabook and send gimmicks to my strawpage!! - ✩
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/D49Ssgk.gif" /><img src="https://i.imgur.com/ubd8SOV.gif" /><img src="https://i.imgur.com/vCUFkMi.gif" /><img src="https://i.imgur.com/Ooq29lX.gif" /><img src="https://i.imgur.com/HQZEByw.gif" />
+  <img src="https://i.imgur.com/D49Ssgk.gif" /> <img src="https://i.imgur.com/ubd8SOV.gif" /> <img src="https://i.imgur.com/vCUFkMi.gif" /> <img src="https://i.imgur.com/Ooq29lX.gif" /> <img src="https://i.imgur.com/HQZEByw.gif" />
 </p>
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
