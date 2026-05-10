@@ -34,13 +34,13 @@
   ✩ - pro/darkshippers or just anything of that sort
   </p>
   <p align="left">
-  ✩ - if you use suggestive/NSFW jokes often near me you're on kinda thin ice
+  ✩ - if you make suggestive/NSFW jokes often (adults who do this are a slight IWC)
   </p>
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
       <p align="left">
-    ✩ - JACK FREW DISLIKERS/HATERS STAY AWAY FROM ME!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
+    ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
   </p>
   <p align="left">
     --
