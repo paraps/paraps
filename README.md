@@ -23,7 +23,10 @@
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
-<details><summary>DNI</summary>
+<details><summary>DNI / IWC</summary>
+  <p align="left">
+    DNI
+  </p>
   <p align="left">
   ✩ - basic DNI criteria
   </p>
@@ -36,8 +39,26 @@
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
+      <p align="left">
+    ✩ - JACK FREW DISLIKERS/HATERS STAY AWAY FROM ME!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
+  </p>
+  <p align="left">
+    --
+  </p>
+  <p align="left">
+    IWC (you can still interact, but please be cautious. most of these are kinda specific and for personal reasons.)
+  </p>
+     <p align="left">
+  ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
+  </p>
     <p align="left">
-  ✩ - if you're just generally mean or rude and make it your whole personality
+    ✩ - people who mostly talk with their friend groups, idk it just makes me feel lonely and i don't like it
+  </p>
+     <p align="left">
+    ✩ - II fans who don't care for BFDI (VERY slight IWC, my opinion on II is complicated)
+  </p>
+  <p align="left">
+    i'll probably add more to this when i remember to do so
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
