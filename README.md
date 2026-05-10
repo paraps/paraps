@@ -46,7 +46,7 @@
     --
   </p>
   <p align="left">
-    IWC (you can still interact, but please be cautious. most of these are kinda specific and for personal reasons.)
+    IWC (you can still interact, but please be cautious unless i interact first.)
   </p>
      <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
@@ -55,7 +55,7 @@
     ✩ - people who mostly talk with friend groups (slight IWC, it just makes me feel lonely sorry)
   </p>
      <p align="left">
-    ✩ - II fans who don't care for BFDI (VERY slight IWC, due to me distancing from II for now.)
+    ✩ - II fans who don't care for BFDI (VERY slight IWC)
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
