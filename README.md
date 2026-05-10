@@ -55,7 +55,7 @@
     ✩ - people who mostly talk with their friend groups, idk it just makes me feel lonely and i don't like it
   </p>
      <p align="left">
-    ✩ - II fans who don't care for BFDI (VERY slight IWC, my opinion on II is complicated)
+    ✩ - II fans who don't care for BFDI (VERY slight IWC, due to me distancing from II for now.)
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
