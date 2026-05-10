@@ -34,7 +34,7 @@
   ✩ - pro/darkshippers or just anything of that sort
   </p>
   <p align="left">
-  ✩ - if you make suggestive/NSFW jokes often (adults who do this are a slight IWC)
+  ✩ - if you make suggestive/NSFW jokes often (THIN ICE)
   </p>
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
@@ -52,7 +52,7 @@
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
   </p>
     <p align="left">
-    ✩ - people who mostly talk with their friend groups, idk it just makes me feel lonely and i don't like it
+    ✩ - people who mostly talk with friend groups (slight IWC, it just makes me feel lonely sorry)
   </p>
      <p align="left">
     ✩ - II fans who don't care for BFDI (VERY slight IWC, due to me distancing from II for now.)
