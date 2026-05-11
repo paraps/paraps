@@ -51,9 +51,6 @@
      <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
   </p>
-    <p align="left">
-    ✩ - people who mostly talk with friend groups (slight IWC, it just makes me feel lonely sorry)
-  </p>
      <p align="left">
     ✩ - II fans who don't care for BFDI (VERY slight IWC)
   </p>
