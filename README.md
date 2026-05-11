@@ -57,6 +57,9 @@
      <p align="left">
     ✩ - II fans who don't care for BFDI (VERY slight IWC)
   </p>
+      <p align="left">
+    ✩ - jack (inanimate insanity) fans, specifically if you're a BIG fan of him
+  </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
   </p>
