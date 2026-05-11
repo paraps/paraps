@@ -52,10 +52,10 @@
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
   </p>
      <p align="left">
-    ✩ - II fans who don't care for BFDI (slight IWC)
+    ✩ - II fans who don't care for/dislike BFDI (IWEC if you dislike BFDI)
   </p>
       <p align="left">
-    ✩ - jack (inanimate insanity) fans, specifically if you're a BIG fan of him (normal fans of him are fine)
+    ✩ - jack (inanimate insanity) fans, specifically if you're a BIG fan of him (just please keep mentions of him to a minimum)
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
