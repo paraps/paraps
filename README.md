@@ -51,20 +51,13 @@
      <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
   </p>
-     <p align="left">
-    ✩ - II fans who don't care for/dislike BFDI (IWEC if you dislike BFDI)
-  </p>
       <p align="left">
     ✩ - fans of jack from inanimate insanity, specifically if you're a BIG fan of him (just please keep mentions of him to a minimum)
+  </p>   <p align="left">
+    ✩ - honestly the II fandom in general is IWC for me unless we already know each other
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
-  </p>
-  <p align="left">
-    --
-  </p>
-  <p align="left">
-    if we're already friends you don't apply to these, but please keep what's in my IWC section in mind when interacting. 
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
