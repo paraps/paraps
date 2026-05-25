@@ -152,13 +152,23 @@
 </p>
 </details>
 <details><summary>ooh you wanna click this so baaaad</summary>
-
+  <p align="center">
+oops you found my jack frew meme collection
+  </p>
 
 https://github.com/user-attachments/assets/9ef7a26b-5ca6-4d08-8319-a4ed4c1bcf42
 
 
 
 https://github.com/user-attachments/assets/a3b7bd26-7464-4b9b-b1cc-5229257a49d8
+
+
+
+https://github.com/user-attachments/assets/63e70e72-20b4-42b9-a22c-a27420830f01
+
+
+
+https://github.com/user-attachments/assets/fe008c49-9f86-4d7c-87ee-794edceaca4f
 
 
 </details>
