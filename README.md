@@ -42,6 +42,9 @@
       <p align="left">
     ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
   </p>
+        <p align="left">
+    ✩ - jackfries (jack frew X fries) shippers you guys are GROSSSSS EW EW EW
+  </p>
   <p align="left">
     --
   </p>
