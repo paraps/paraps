@@ -33,8 +33,11 @@
   <p align="left">
   ✩ - pro/darkshippers or just anything of that sort
   </p>
+      <p align="left">
+    ✩ - under 13
+  </p>
   <p align="left">
-  ✩ - if you make suggestive/NSFW jokes often (THIN ICE)
+  ✩ - if you make suggestive/NSFW jokes often as a minor (THIN ICE)
   </p>
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
@@ -43,7 +46,7 @@
     ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
   </p>
         <p align="left">
-    ✩ - jackfries (jack frew X fries) shippers you guys are GROSSSSS EW EW EW
+    ✩ - jackfries (jack frew X fries) shippers you guys are GROSSSSS EW EW EW JACK'S LITERALLY A CHILD
   </p>
   <p align="left">
     --
