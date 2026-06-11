@@ -95,16 +95,22 @@
   ✩ - poppy (dandy's world) ; medium kin
   </p>
   <p align="left">
+  ✩ - purple (among us show) ; medium kin
+  </p>
+   <p align="left">
+  ✩ - cyan (among us show) ; medium kin
+  </p>
+  <p align="left">
   ✩ - eclipseping (catch! teenieping) ; medium kin
   </p>
   <p align="left">
   ✩ - happying (catch! teenieping) ; medium kin
   </p>
   <p align="left">
-  ✩ - dozyping (catch! teenieping) ; medium kin
+  ✩ - flippy doggenbottom (toontown rewritten) ; medium kin
   </p>
-  <p align="left">
-  ✩ - flippy doggenbottom (toontown rewritten) ; medium - low kin
+    <p align="left">
+  ✩ - dozyping (catch! teenieping) ; low kin
   </p>
   <p align="left">
   ✩ - 9-volt (warioware) ; low kin
