@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / pre-BFDI content (ICMAD, WVGM, etc.), sanjay and craig, mii games - ✩
+✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI content (ICMAD, WVGM, etc.) - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
