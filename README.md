@@ -76,6 +76,9 @@
   <p align="left">
   ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
   </p>
+    <p align="left">
+  ✩ - dan (WVGM) ; ID kin, permashiftflux
+  </p>
   <p align="left">
   ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
   </p>
