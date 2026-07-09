@@ -107,9 +107,6 @@
    <p align="left">
   ✩ - cyan (among us show) ; medium kin
   </p>
-     <p align="left">
-  ✩ - kong (random toon show) ; medium kin
-  </p>
     <p align="left">
   ✩ - flippy doggenbottom (toontown rewritten) ; medium kin
   </p>
