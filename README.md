@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI content (ICMAD, WVGM, etc.) - ✩
+✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI content (ICMAD, WVGM, etc.), random toon - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -60,10 +60,8 @@
      <p align="left">
   ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
   </p>
-      <p align="left">
-    ✩ - fans of jack from inanimate insanity, specifically if you're a BIG fan of him (just please keep mentions of him to a minimum)
-  </p>   <p align="left">
-    ✩ - honestly the II fandom in general is IWC for me unless we already know each other
+   <p align="left">
+    ✩ - honestly the II fandom in general is a slight IWC for me unless we already know each other
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
@@ -77,16 +75,19 @@
   ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
   </p>
     <p align="left">
-  ✩ - dan (WVGM) ; ID kin, permashiftflux
+  ✩ - kong (random toon / therandomtoonshows) ; ID kin, permashift
+  </p>
+    <p align="left">
+  ✩ - bunsen (bunsen is a beast) ; ID kin
   </p>
   <p align="left">
   ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
   </p>
-  <p align="left">
-  ✩ - bunsen (bunsen is a beast) ; ID kin
-  </p>
     <p align="left">
   ✩ - orbulon (warioware) ; high kin
+  </p>
+      <p align="left">
+  ✩ - dan (WVGM) ; high kin
   </p>
   <p align="left">
   ✩ - beef boss (poofesure) ; high kin
