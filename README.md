@@ -81,7 +81,7 @@
   ✩ - bunsen (bunsen is a beast) ; ID kin
   </p>
   <p align="left">
-  ✩ - hugh morris (tomodachi life living the dream) ; ID kin, permashift
+  ✩ - hugh morris (tomodachi life living the dream) ; ID kin
   </p>
     <p align="left">
   ✩ - orbulon (warioware) ; high kin
