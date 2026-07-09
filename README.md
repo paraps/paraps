@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI content (ICMAD, WVGM, etc.), random toon - ✩
+✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI era (ICMAD, WVGM, etc.), random toon - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
