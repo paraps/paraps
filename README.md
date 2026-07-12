@@ -39,9 +39,6 @@
       <p align="left">
     ✩ - under 13
   </p>
-  <p align="left">
-  ✩ - if you make suggestive/NSFW jokes often as a minor (THIN ICE)
-  </p>
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
@@ -58,10 +55,13 @@
     IWC (you can still interact, but please be cautious unless i interact first.)
   </p>
      <p align="left">
-  ✩ - if you're just generally mean or rude and make it your whole personality (IWEC)
+  ✩ - if you're just generally mean or rude and make it your whole personality
+  </p>
+  <p align="left">
+  ✩ - if you make suggestive/NSFW jokes often (just please don't bring them up when talking to me)
   </p>
    <p align="left">
-    ✩ - honestly the II fandom in general is a slight IWC for me unless we already know each other
+    ✩ - honestly the II fandom in general is a very slight IWC for me unless we already know each other
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
