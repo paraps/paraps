@@ -86,9 +86,6 @@
     <p align="left">
   ✩ - Orbulon (WarioWare) ; high kin
   </p>
-      <p align="left">
-  ✩ - Dan (When Video Games Malfunction) ; high kin
-  </p>
   <p align="left">
   ✩ - Beef Boss (Poofesure) ; high kin
   </p>
