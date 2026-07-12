@@ -69,64 +69,64 @@
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
-  ✩ - jack frew (BFDI/ICMAD) ; ID kin, permashift
+  ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift
   </p>
   <p align="left">
-  ✩ - sanjay patel (sanjay and craig) ; ID kin, permashift
+  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin, permashift
   </p>
     <p align="left">
-  ✩ - kong (random toon / therandomtoonshows) ; ID kin, permashift
+  ✩ - Kong (Random Toon / therandomtoonshows) ; ID kin, permashift
   </p>
     <p align="left">
-  ✩ - bunsen (bunsen is a beast) ; ID kin
+  ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
   </p>
   <p align="left">
-  ✩ - hugh morris (tomodachi life living the dream) ; ID kin
+  ✩ - Hugh Morris (Tomodachi Life Living the Dream) ; ID kin
   </p>
     <p align="left">
-  ✩ - orbulon (warioware) ; high kin
+  ✩ - Orbulon (WarioWare) ; high kin
   </p>
       <p align="left">
-  ✩ - dan (WVGM) ; high kin
+  ✩ - Dan (When Video Games malfunction) ; high kin
   </p>
   <p align="left">
-  ✩ - beef boss (poofesure) ; high kin
+  ✩ - Beef Boss (Poofesure) ; high kin
   </p>
      <p align="left">
-  ✩ - face (face's music party) ; high kin
+  ✩ - Face (Face's Music Party) ; high kin
   </p>
   <p align="left">
-  ✩ - darwin watterson (the amazing world of gumball) ; medium kin
+  ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
   </p>
   <p align="left">
-  ✩ - poppy (dandy's world) ; medium kin
+  ✩ - Poppy (Dandy's World) ; medium kin
   </p>
   <p align="left">
-  ✩ - purple (among us show) ; medium kin
+  ✩ - Purple (Among Us show) ; medium kin
   </p>
    <p align="left">
-  ✩ - cyan (among us show) ; medium kin
+  ✩ - Cyan (Among Us show) ; medium kin
   </p>
     <p align="left">
-  ✩ - flippy doggenbottom (toontown rewritten) ; medium kin
+  ✩ - Flippy Doggenbottom (Toontown Rewritten) ; medium kin
   </p>
   <p align="left">
-  ✩ - eclipseping (catch! teenieping) ; medium kin
+  ✩ - Eclipseping (Catch! Teenieping) ; medium kin
   </p>
   <p align="left">
-  ✩ - happying (catch! teenieping) ; medium kin
-  </p>
-    <p align="left">
-  ✩ - dozyping (catch! teenieping) ; low kin
+  ✩ - Happying (Catch! Teenieping) ; medium kin
   </p>
   <p align="left">
-  ✩ - 9-volt (warioware) ; low kin
+  ✩ - 9-Volt (WarioWare) ; low kin
+  </p>
+   <p align="left">
+  ✩ - Dozyping (Catch! Teenieping) ; low kin
   </p>
   <p align="left">
   --
   </p>
   <p align="left">
-  doubles OK!!
+  doubles OK (mostly)!!
   </p>
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
