@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI era (ICMAD, WVGM, etc.), random toon / therandomtoonshows - ✩
+✩ - current hyperfixation(s): battle for dream island / JNJ's pre-BFDI era (ICMAD/WVGM/etc.), random toon / therandomtoonshows - ✩
 </p>
 <p align="center">
 (PLEASE talk to me about my hyperfixations!!)
