@@ -12,9 +12,6 @@
 ✩ - current hyperfixation(s): battle for dream island / JNJ's pre-BFDI era (ICMAD/WVGM/etc.), random toon / therandomtoonshows - ✩
 </p>
 <p align="center">
-(PLEASE talk to me about my hyperfixations!!)
-</p>
-<p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
 </p>
 <p align="center">
