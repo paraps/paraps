@@ -45,10 +45,7 @@
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
       <p align="left">
-    ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI!! HE'S BOTH A HUGE COMFORT CHARACTER TO ME AND I JUST AM HIM.
-  </p>
-        <p align="left">
-    ✩ - jackfries (jack frew X fries) shippers you guys are GROSSSSS EW EW EW JACK'S LITERALLY A CHILD
+    ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
   </p>
   <p align="left">
     --
@@ -61,9 +58,6 @@
   </p>
   <p align="left">
   ✩ - if you make suggestive/NSFW jokes often (just please don't bring them up when talking to me)
-  </p>
-   <p align="left">
-    ✩ - honestly the II fandom in general is a very slight IWC for me unless we already know each other
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
