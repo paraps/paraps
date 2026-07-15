@@ -9,7 +9,10 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI era (ICMAD, WVGM, etc.), random toon - ✩
+✩ - current hyperfixation(s): battle for dream island / jacknjellify's pre-BFDI era (ICMAD, WVGM, etc.), random toon / therandomtoonshows - ✩
+</p>
+<p align="center">
+(PLEASE talk to me about my hyperfixations!!)
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -45,7 +48,7 @@
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
       <p align="left">
-    ✩ - JACK FREW DISLIKERS/HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
+    ✩ - JACK FREW HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
   </p>
   <p align="left">
     --
