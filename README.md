@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): battle for dream island / JNJ's pre-BFDI era (ICMAD/WVGM/etc.), random toon / therandomtoonshows - ✩
+✩ - current hyperfixation(s): battle for dream island / JNJ's pre-BFDI era (ICMAD/WVGM/etc.), random toon - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -66,10 +66,10 @@
   ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift
   </p>
   <p align="left">
-  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin, permashift
+  ✩ - Kong (Random Toon) ; ID kin, permashift
   </p>
-    <p align="left">
-  ✩ - Kong (Random Toon / therandomtoonshows) ; ID kin, permashift
+  <p align="left">
+  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin, permashift
   </p>
     <p align="left">
   ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
