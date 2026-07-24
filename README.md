@@ -86,6 +86,9 @@
      <p align="left">
   ✩ - Face (Face's Music Party) ; high kin
   </p>
+      <p align="left">
+  ✩ - Ribbit (The Amazing Digital Circus) ; medium - high kin
+  </p>
   <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
   </p>
@@ -108,7 +111,7 @@
   ✩ - Happying (Catch! Teenieping) ; medium kin
   </p>
   <p align="left">
-  ✩ - 9-Volt (WarioWare) ; low kin
+  ✩ - 9-Volt (WarioWare) ; medium - low kin
   </p>
    <p align="left">
   ✩ - Dozyping (Catch! Teenieping) ; low kin
