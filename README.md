@@ -75,7 +75,7 @@
   ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift
   </p>
   <p align="left">
-  ✩ - Kong (Random Toon) ; ID kin, permashift
+  ✩ - Kong (Random Toon / therandomtoonshows) ; ID kin, permashift
   </p>
   <p align="left">
   ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin, permashift
