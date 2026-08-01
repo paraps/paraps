@@ -64,7 +64,7 @@
   ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
   <p align="left">
-  ✩ - if you make suggestive/NSFW jokes often (just please don't bring them up when talking to me)
+  ✩ - regiment members (advertisers are usually blocked for 24 hours, can range from IWEC to full on DNI)
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
