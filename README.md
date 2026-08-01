@@ -64,7 +64,7 @@
   ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
   <p align="left">
-  ✩ - regiment members (advertisers are usually blocked for 24 hours, can range from IWEC to full on DNI)
+  ✩ - regiment members, usually IWC but can get to IWEC or DNI depending on my mood so don't push me
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
