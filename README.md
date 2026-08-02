@@ -92,14 +92,14 @@
     <p align="left">
   ✩ - Ribbit (The Amazing Digital Circus) ; high kin
   </p>
+    <p align="left">
+  ✩ - Yatta (Dandy's World) ; high kin
+  </p>
   <p align="left">
   ✩ - Beef Boss (Poofesure) ; high kin
   </p>
      <p align="left">
   ✩ - Face (Face's Music Party) ; high kin
-  </p>
-      <p align="left">
-  ✩ - Yatta (Dandy's World) ; medium - high kin
   </p>
   <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
