@@ -78,7 +78,7 @@
   ✩ - Kong (Random Toon / therandomtoonshows) ; ID kin, permashift
   </p>
   <p align="left">
-  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin, permashift
+  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin
   </p>
     <p align="left">
   ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
