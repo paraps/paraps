@@ -89,14 +89,14 @@
     <p align="left">
   ✩ - Orbulon (WarioWare) ; high kin
   </p>
+    <p align="left">
+  ✩ - Ribbit (The Amazing Digital Circus) ; high kin
+  </p>
   <p align="left">
   ✩ - Beef Boss (Poofesure) ; high kin
   </p>
      <p align="left">
   ✩ - Face (Face's Music Party) ; high kin
-  </p>
-      <p align="left">
-  ✩ - Ribbit (The Amazing Digital Circus) ; medium - high kin
   </p>
       <p align="left">
   ✩ - Yatta (Dandy's World) ; medium - high kin
