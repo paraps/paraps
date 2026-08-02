@@ -98,6 +98,9 @@
       <p align="left">
   ✩ - Ribbit (The Amazing Digital Circus) ; medium - high kin
   </p>
+      <p align="left">
+  ✩ - Yatta (Dandy's World) ; medium - high kin
+  </p>
   <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
   </p>
