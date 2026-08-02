@@ -64,7 +64,7 @@
   ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
   <p align="left">
-  ✩ - regiment members, can range from IWC to DNI depending on how i'm feeling
+  ✩ - regiment members, can range from IWC to DNIUF depending on how i'm feeling
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
