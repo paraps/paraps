@@ -27,7 +27,7 @@
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
 <p align="center">
-   💬 - i'm actively on ponytown, whisper to interact!
+   💬 - i'm actively on ponytown, either talk to me in public chat or whisper to interact!
 </p>
 <p align="center">
 🌙 - i'm mostly offtab and not looking at ponytown, whisper to interact.
