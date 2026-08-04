@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): BFDI / jacknjellify's pre-BFDI era (ICMAD, WVGM), random toon / therandomtoonshows - ✩
+✩ - current hyperfixation(s): BFDI / jacknjellify's pre-BFDI era (mostly ICMAD), random toon / therandomtoonshows - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
