@@ -64,13 +64,13 @@ PLEASE do not cover me. i don't have a cover discomfort/trigger, i just like see
     --
   </p>
   <p align="left">
-    IWC (you can still interact, but please be cautious unless i interact first.)
+    IWC (you can still interact, but please be cautious. i'm open to making exceptions to these.)
   </p>
      <p align="left">
-  ✩ - if you're just generally mean or rude and make it your whole personality
+  ✩ - if you're just generally mean or rude honestly
   </p>
   <p align="left">
-  ✩ - regiment members are usually IWC for me, y'all are just kinda annoying sorry
+  ✩ - regiment members, specifically ones REALLY active in regiment stuff. y'all are just kinda annoying sorry
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
