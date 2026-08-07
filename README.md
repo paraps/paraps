@@ -39,7 +39,7 @@
 ---
 </p>
 <p align="center">
-PLEASE do not cover me. i don't have a cover discomfort/trigger, being covered's moreso a pet peeve of mine.
+PLEASE do not cover me. i don't have a cover discomfort/trigger, i just like seeing my ponies.
 </p>
 <details><summary>DNI / IWC</summary>
   <p align="left">
