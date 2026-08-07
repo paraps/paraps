@@ -64,7 +64,7 @@
   ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
   <p align="left">
-  ✩ - regiment members, can range from IWC to DNIUF depending on my mood. i just have a negative opinion on regiments overall.
+  ✩ - regiment members are usually IWC for me, but can be DNIUF if i'm in a bad mood.
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
