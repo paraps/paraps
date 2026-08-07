@@ -70,7 +70,7 @@ PLEASE do not cover me. i don't have a cover discomfort/trigger, i just like see
   ✩ - if you're just generally mean or rude and make it your whole personality
   </p>
   <p align="left">
-  ✩ - regiment members are usually IWC for me, but can be DNIUF if i'm in a bad mood.
+  ✩ - regiment members are usually IWC for me, y'all are just kinda annoying sorry
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
