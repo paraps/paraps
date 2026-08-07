@@ -35,6 +35,12 @@
 <p align="center">
 ⛔️ - i'm feeling kinda iffy, you can still whisper me but PLEASE IWC/IWEC.
 </p>
+<p align="center">
+---
+</p>
+<p align="center">
+PLEASE do not cover me. i don't have a cover discomfort/trigger, being covered's moreso a pet peeve of mine.
+</p>
 <details><summary>DNI / IWC</summary>
   <p align="left">
     DNI
