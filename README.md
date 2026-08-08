@@ -57,6 +57,9 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
    <p align="left">
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
+     <p align="left">
+  ✩ - pretty much any NSFW ponies
+  </p>
       <p align="left">
     ✩ - JACK FREW HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
   </p>
