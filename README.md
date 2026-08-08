@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): BFDI / jacknjellify's pre-BFDI era (mostly ICMAD), random toon / therandomtoonshows - ✩
+✩ - current hyperfixation(s): BFDI / jacknjellify's pre-BFDI era (mostly ICMAD), random toon / the random toon show - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -81,7 +81,7 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
   ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift
   </p>
   <p align="left">
-  ✩ - Kong (Random Toon / therandomtoonshows) ; ID kin, permashift
+  ✩ - Kong (Random Toon / The Random Toon Show) ; ID kin, permashift
   </p>
   <p align="left">
   ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin
