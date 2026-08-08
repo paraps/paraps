@@ -70,7 +70,7 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
   ✩ - if you're just generally mean or rude honestly
   </p>
   <p align="left">
-  ✩ - regiment members, i'm just kinda iffy on them sorry
+  ✩ - regiment members, i'm kinda iffy on them rn but i'm actively trying to tolerate them more.
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
