@@ -189,7 +189,7 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
  <img src="https://files.catbox.moe/c9jlhn.gif"/> - Jack Frew (BFDI + I Can Make A Difference)
 </p>
 <p align="right">
-Kong (Random Toon / The Random Toon Show) - <img src="https://files.catbox.moe/37uuzj.gif"/>
+Kong (Random Toon / The Random Toon Show) - <img src="https://files.catbox.moe/amzcby.gif"/>
 </p>
 <p align="center">
  <img src="https://i.imgur.com/OFfaFiC.png"/>
