@@ -108,7 +108,7 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
   ✩ - Beef Boss (Poofesure) ; high kin
   </p>
      <p align="left">
-  ✩ - Face (Face's Music Party) ; high kin
+  ✩ - Face (Face's Music Party) ; medium kin
   </p>
   <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
