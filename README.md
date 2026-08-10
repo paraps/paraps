@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✩ - current hyperfixation(s): BFDI / jacknjellify's pre-BFDI era (mostly ICMAD), random toon / the random toon show - ✩
+✩ - current hyperfixation(s): BFDI + jacknjellify's pre-BFDI era (mostly ICMAD), random toon / the random toon show - ✩
 </p>
 <p align="center">
 ✩ - THE jack frew (BFDI / ICMAD) fictionkin!! - ✩
@@ -38,7 +38,7 @@
 🌙 - i'm mostly offtab and not looking at ponytown, whisper to interact.
 </p>
 <p align="center">
-⛔️ - i'm feeling kinda iffy, you can still whisper me but PLEASE IWC/IWEC.
+⛔️ - i'm in a bad mood, you can still whisper but PLEASE IWC/IWEC.
 </p>
 <p align="center">
 ---
