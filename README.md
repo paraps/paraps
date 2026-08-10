@@ -18,11 +18,12 @@
 ✩ - sign my atabook and send gimmicks to my strawpage!! - ✩
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/ubd8SOV.gif" /> <img src="https://i.imgur.com/J19RegR.gif"/> <img src="https://i.imgur.com/vCUFkMi.gif" />
-</p>
-<p align="center">
    <img src="https://i.imgur.com/RwNvI0r.gif" />  <img src="https://i.imgur.com/BQRbASV.gif" />  <img src="https://i.imgur.com/6Eco4wz.gif" />
 </p>
+<p align="center">
+  <img src="https://i.imgur.com/ubd8SOV.gif" /> <img src="https://i.imgur.com/J19RegR.gif"/> <img src="https://i.imgur.com/vCUFkMi.gif" />
+</p>
+
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
 
