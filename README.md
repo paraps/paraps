@@ -79,7 +79,7 @@ PLEASE do not cover me. i like seeing my ponies lol.
   ✩ - if you're just generally mean or rude honestly
   </p>
   <p align="left">
-  ✩ - regiment members, i'm kinda iffy on them rn but i'm actively trying to tolerate them more.
+  ✩ - people active in regiments, i'm trying to be more tolerant but i'm still iffy on you guys.
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
