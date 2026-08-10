@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/4jmJBFj.png" alt="animated" />  
+  <img src="https://i.imgur.com/0xpElJI.png" alt="animated" />  
 
 <p align="center">
   <img src="https://i.imgur.com/1BMwozo.png" />
@@ -25,6 +25,11 @@
 </p>
 
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fparaps&label=goobers&labelColor=%2337d67a&countColor=%23555555)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fparaps)
+
+
+<p align="center">
+ <img src="https://64.media.tumblr.com/414092bcf80d9da449b5f1ad31c4e1e2/ef33feccc7049d7e-8f/s2048x3072/76b2ba3f25394aec59d8a6951efdf9377b73fb18.pnj"/>
+</p>
 
 <p align="center">
    💬 - i'm actively on ponytown, either talk to me in public chat or whisper to interact!
@@ -141,12 +146,12 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
   --
   </p>
   <p align="left">
-  doubles OK (mostly)!!
+  doubles OK!!
   </p>
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
 <p align="center">
- <img src="https://i.imgur.com/OFfaFiC.png"/>
+ <img src="https://64.media.tumblr.com/fb27c87798f3a0b8b7e846d6b8c27cf1/ef33feccc7049d7e-79/s2048x3072/f006b10b9b94b1d5d5446f6ea117e606c6853aaa.pnj"/>
 </p>
 <p align="center">
   <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/38088aca9094649362a4bcbef70d0c0b/607814a73fba414e-44/s100x200/85674d4aaf947486520a9d8e06b396866eacbee7.jpg" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
@@ -180,7 +185,7 @@ PLEASE do not cover me. i like seeing my ponies and it's annoying when i get cov
 </p>
 </details>
 <p align="center">
- <img src="https://i.imgur.com/OFfaFiC.png"/>
+ <img src="https://64.media.tumblr.com/234a791fb4269af0837b30a4835bc47f/ef33feccc7049d7e-67/s2048x3072/01f30fe41cd30a5f38654283fd864504dcab8117.pnj"/>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/cy9wsm.png"/>
@@ -198,16 +203,16 @@ Jack Frew (BFDI + I Can Make A Difference)
 Kong (Random Toon / The Random Toon Show)
 </p>
 <p align="center">
- <img src="https://i.imgur.com/OFfaFiC.png"/>
+ <img src="https://64.media.tumblr.com/ce1f6a19aab780f212e343b041c5a08f/ef33feccc7049d7e-e5/s2048x3072/db926c38866b8673387efa6edcf1dc93483fa2e7.pnj"/>
 </p>
 <p align="center">
 <img src="https://i.imgur.com/8nXZRwH.gif"/>
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114"/> <img src="https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114"/> <img src="https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=29416114"/> <img src="https://files.catbox.moe/mod3rg.png"/>
+<img src="https://files.catbox.moe/0e77g7.png"/> <img src="https://pixels.crd.co/assets/images/gallery11/5981c57d.gif?v=29416114"/> <img src="https://files.catbox.moe/mod3rg.png"/>
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/iswV3Jv.png" alt="animated" />  
+  <img src="https://i.imgur.com/HDCwdko.png" alt="animated" />  
 </p>
