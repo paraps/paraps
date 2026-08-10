@@ -44,7 +44,7 @@
 ---
 </p>
 <p align="center">
-PLEASE do not cover me. i like seeing my ponies and it's annoying when i get covered.
+PLEASE do not cover me. i like seeing my ponies lol.
 </p>
 <details><summary>DNI / IWC</summary>
   <p align="left">
