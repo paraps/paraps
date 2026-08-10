@@ -66,6 +66,9 @@ PLEASE do not cover me. i like seeing my ponies lol.
      <p align="left">
   ✩ - any sort of NSFW ponies get PERMA HIDDEN, NO EXCEPTIONS.
   </p>
+   <p align="left">
+    ✩ - people who actively hate on my interests / hyperfixations
+  </p>
       <p align="left">
     ✩ - JACK FREW HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
   </p>
@@ -78,8 +81,11 @@ PLEASE do not cover me. i like seeing my ponies lol.
      <p align="left">
   ✩ - if you're just generally mean or rude honestly
   </p>
+      <p align="left">
+  ✩ - if you make suggestive / NSFW jokes often (just please limit those jokes around me)
+  </p>
   <p align="left">
-  ✩ - people active in regiments, i'm trying to be more tolerant but i'm still iffy on you guys.
+  ✩ - people active in regiments, i'm trying to be more tolerant but i'm still very iffy on you guys.
   </p>
   <p align="left">
     i'll probably add more to this when i remember to do so
