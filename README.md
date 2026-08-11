@@ -69,9 +69,6 @@ PLEASE do not cover me. i like seeing my ponies lol.
    <p align="left">
     ✩ - people who actively hate on my interests / hyperfixations
   </p>
-      <p align="left">
-    ✩ - JACK FREW HATERS ARE STRICTLY DNI, i mean tbh it's kinda obvious
-  </p>
   <p align="left">
     --
   </p>
