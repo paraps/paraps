@@ -141,10 +141,10 @@ PLEASE do not cover me. i like seeing my ponies lol.
   ✩ - Eclipseping (Catch! Teenieping) ; medium kin
   </p>
   <p align="left">
-  ✩ - Happying (Catch! Teenieping) ; medium kin
+  ✩ - 9-Volt (WarioWare) ; medium kin
   </p>
-  <p align="left">
-  ✩ - 9-Volt (WarioWare) ; medium - low kin
+   <p align="left">
+  ✩ - Happying (Catch! Teenieping) ; medium - low kin
   </p>
    <p align="left">
   ✩ - Dozyping (Catch! Teenieping) ; low kin
