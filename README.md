@@ -79,10 +79,10 @@ PLEASE do not cover me. i like seeing my ponies lol
   ✩ - if you're just generally mean or rude honestly
   </p>
       <p align="left">
-  ✩ - if you make suggestive / NSFW jokes often (just please limit those jokes around me)
+  ✩ - if you make suggestive / NSFW jokes often (just like,, try to limit them around me)
   </p>
   <p align="left">
-  ✩ - people active in regiments, i'm trying to be more tolerant but i'm still very iffy on you guys.
+  ✩ - people active in regiments, though i'm trying to be more tolerant of you guys.
   </p>
     <p align="left">
     --
