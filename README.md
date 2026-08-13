@@ -84,8 +84,11 @@ PLEASE do not cover me. i like seeing my ponies lol.
   <p align="left">
   ✩ - people active in regiments, i'm trying to be more tolerant but i'm still very iffy on you guys.
   </p>
-  <p align="left">
-    i'll probably add more to this when i remember to do so
+    <p align="left">
+    --
+  </p>
+    <p align="left">
+    i'll also be blocking freely, usually if you're annoying me or something. i'll add to these when needed.
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
