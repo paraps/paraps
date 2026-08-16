@@ -82,7 +82,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   ✩ - if you make suggestive / NSFW jokes often (just like,, try to limit them around me)
   </p>
   <p align="left">
-  ✩ - people active in regiments, though i'm trying to be more tolerant of you guys.
+  ✩ - people active in regiments (friends and people i follow first are excluded from this don't worry)
     <p align="left">
     --
   </p>
