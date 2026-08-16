@@ -203,7 +203,7 @@ PLEASE do not cover me. i like seeing my ponies lol
 Jack Frew (BFDI + I Can Make A Difference)
 </p>
 <p align="right">
- <img src="https://files.catbox.moe/86oq1e.gif"/>
+ <img src="https://files.catbox.moe/dq9r9e.gif"/>
 </p>
 <p align="right">
 Kong (Random Toon / The Random Toon Show)
