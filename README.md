@@ -83,12 +83,11 @@ PLEASE do not cover me. i like seeing my ponies lol
   </p>
   <p align="left">
   ✩ - people active in regiments, though i'm trying to be more tolerant of you guys.
-  </p>
     <p align="left">
     --
   </p>
     <p align="left">
-    i'll also be blocking freely, usually if you're annoying me, i'm in your DNI, have bad vibes, etc. i'll add to these when needed.
+    i'll also be blocking freely and usually if you're annoying me, i'm in your DNI, you have bad vibes, etc. i'll add to this when needed.
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
