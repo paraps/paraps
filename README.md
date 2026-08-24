@@ -116,23 +116,26 @@ PLEASE do not cover me. i like seeing my ponies lol
   <p align="left">
   ✩ - Beef Boss (Poofesure) ; high kin
   </p>
-     <p align="left">
-  ✩ - Face (Face's Music Party) ; medium kin
-  </p>
-  <p align="left">
+    <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
   </p>
   <p align="left">
+  ✩ - Honeydrop (Droplet Island) ; medium kin
+  </p>
+  <p align="left">
   ✩ - Poppy (Dandy's World) ; medium kin
+  </p>
+    <p align="left">
+  ✩ - Face (Face's Music Party) ; medium kin
+  </p>
+      <p align="left">
+  ✩ - Flippy Doggenbottom (Toontown Rewritten) ; medium kin
   </p>
   <p align="left">
   ✩ - Purple (Among Us show) ; medium kin
   </p>
    <p align="left">
   ✩ - Cyan (Among Us show) ; medium kin
-  </p>
-    <p align="left">
-  ✩ - Flippy Doggenbottom (Toontown Rewritten) ; medium kin
   </p>
   <p align="left">
   ✩ - Eclipseping (Catch! Teenieping) ; medium kin
