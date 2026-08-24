@@ -89,6 +89,8 @@ PLEASE do not cover me. i like seeing my ponies lol
   </p>
     <p align="left">
     i'll also be blocking freely and usually if you're annoying me, i'm in your DNI, you have bad vibes, etc. i'll add to this when needed.
+  </p> <p align="left">
+    friends are excluded from these and people who i interact with first are fine aswell.
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
