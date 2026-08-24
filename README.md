@@ -81,6 +81,9 @@ PLEASE do not cover me. i like seeing my ponies lol
       <p align="left">
   ✩ - if you make suggestive / NSFW jokes often (just like,, try to limit them around me)
   </p>
+        <p align="left">
+  ✩ - dandy's world area (spawn) regulars, i'm only there to look at people's skins
+  </p>
     <p align="left">
     --
   </p>
