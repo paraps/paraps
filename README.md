@@ -139,14 +139,14 @@ PLEASE do not cover me. i like seeing my ponies lol
   <p align="left">
   ✩ - Purple (Among Us show) ; medium kin
   </p>
+  <p align="left">
+  ✩ - 9-Volt (WarioWare) ; medium kin
+  </p>
    <p align="left">
-  ✩ - Cyan (Among Us show) ; medium kin
+  ✩ - Cyan (Among Us show) ; low kin
   </p>
   <p align="left">
-  ✩ - Eclipseping (Catch! Teenieping) ; medium kin
-  </p>
-  <p align="left">
-  ✩ - 9-Volt (WarioWare) ; medium - low kin
+  ✩ - Eclipseping (Catch! Teenieping) ; low kin
   </p>
   <p align="left">
   --
