@@ -67,7 +67,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   ✩ - any sort of NSFW ponies get PERMA HIDDEN, NO EXCEPTIONS.
   </p>
    <p align="left">
-    ✩ - people who actively hate on my interests / hyperfixations
+    ✩ - people who actively hate on my special interests / hyperfixations
   </p>
   <p align="left">
     --
