@@ -106,6 +106,9 @@ PLEASE do not cover me. i like seeing my ponies lol
     <p align="left">
   ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
   </p>
+    <p align="left">
+  ✩ - Facty (Fact Attack Adventures) ; ID kin
+  </p>
   <p align="left">
   ✩ - Hugh Morris (Tomodachi Life Living the Dream) ; ID kin
   </p>
@@ -124,14 +127,14 @@ PLEASE do not cover me. i like seeing my ponies lol
     <p align="left">
   ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
   </p>
-     <p align="left">
-  ✩ - Martian (Fact Attack Adventures) ; medium kin
-  </p>
   <p align="left">
   ✩ - Honeydrop (Droplet Island) ; medium kin
   </p>
   <p align="left">
   ✩ - Poppy (Dandy's World) ; medium kin
+  </p>
+       <p align="left">
+  ✩ - Martian (Fact Attack Adventures) ; medium kin
   </p>
     <p align="left">
   ✩ - Face (Face's Music Party) ; medium kin
