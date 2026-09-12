@@ -161,7 +161,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   --
   </p>
   <p align="left">
-  doubles OK!!
+  doubles OK except for Kong (doubles iffy) and Beef Boss (doubles DNI)!
   </p>
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
