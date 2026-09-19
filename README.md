@@ -212,10 +212,16 @@ PLEASE do not cover me. i like seeing my ponies lol
 Jack Frew (BFDI + I Can Make A Difference)
 </p>
 <p align="right">
- <img src="https://files.catbox.moe/6bgics.gif"/>
+ <img src="https://files.catbox.moe/5wiaqa.gif"/>
 </p>
 <p align="right">
 Kong (Random Toon / The Random Toon Show)
+</p>
+<p align="left">
+ <img src="https://files.catbox.moe/xsgmge.gif"/>
+</p>
+<p align="left">
+Facty (Fact Attack Adventures)
 </p>
 <p align="center">
  <img src="https://64.media.tumblr.com/ce1f6a19aab780f212e343b041c5a08f/ef33feccc7049d7e-e5/s2048x3072/db926c38866b8673387efa6edcf1dc93483fa2e7.pnj"/>
