@@ -172,7 +172,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   <img src="https://i.imgur.com/uNAsPFG.gif" alt="animated" /> <img src="https://files.catbox.moe/vqeul0.gif" alt="animated" /> <img src="https://64.media.tumblr.com/38088aca9094649362a4bcbef70d0c0b/607814a73fba414e-44/s100x200/85674d4aaf947486520a9d8e06b396866eacbee7.jpg" alt="animated" /> <img src="https://files.catbox.moe/r9hiqj.png" alt="animated" />
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://external-media.spacehey.net/media/sT7VMFPqxq0ToNLccsp1D1af06B54loPc0kHOtgTni5U=/https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
+<img src="https://files.catbox.moe/nn7qfq.gif" alt="animated" /> <img src="https://files.catbox.moe/pw29hr.png" alt="animated" /> <img src="https://files.catbox.moe/yi32ya.gif" alt="animated" /> <img src="https://files.catbox.moe/v2ese3.gif" alt="animated" />
 </p>
 <p align="center">
   <img src="https://likephantoms4ever.neocities.org/stamps/mii.png" alt="animated" /> <img src="https://64.media.tumblr.com/c03ee3b9d9f010d2e0eb8b821fc020ce/05e6ed0410c3dea5-f6/s100x200/ebacc9f9828657eed704ca218dd1be648e49f22b.gifv" alt="animated" /> <img src="https://64.media.tumblr.com/ce62853f8a847047cccf2e46d974a821/99b03e9f0218f144-0b/s250x400/08de70f1b2b2d3a99c2596ca7ef3468a5a605a93.pnj" alt="animated" /> <img src="https://64.media.tumblr.com/6366b9cdf4561d475b336ba3f35c96de/7335f8922591cbec-e9/s250x400/0cbd9509eb39586609e23d87f02dd438a1b7159d.gifv" alt="animated" />
