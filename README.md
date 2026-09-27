@@ -108,10 +108,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   </p>
     <p align="left">
   ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
-  </p>
-    <p align="left">
-  ✩ - Facty (Fact Attack Adventures) ; ID kin
-  </p>
+    </p>
   <p align="left">
   ✩ - Hugh Morris (Tomodachi Life Living the Dream) ; ID kin
   </p>
