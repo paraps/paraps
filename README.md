@@ -98,67 +98,67 @@ PLEASE do not cover me. i like seeing my ponies lol
 </details>
 <details><summary>FICTIONKINS</summary>
   <p align="left">
-  ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift
+  ✩ - Jack Frew (BFDI / I Can Make A Difference) ; ID kin, permashift | ✅
   </p>
   <p align="left">
-  ✩ - Kong (Random Toon / The Random Toon Show) ; ID kin, permashift
+  ✩ - Kong (Random Toon / The Random Toon Show) ; ID kin, permashift | 😐
   </p>
   <p align="left">
-  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin
+  ✩ - Sanjay Patel (Sanjay And Craig) ; ID kin | ✅
   </p>
     <p align="left">
-  ✩ - Bunsen (Bunsen Is A Beast) ; ID kin
+  ✩ - Bunsen (Bunsen Is A Beast) ; ID kin | ✅
     </p>
   <p align="left">
-  ✩ - Hugh Morris (Tomodachi Life Living the Dream) ; ID kin
+  ✩ - Hugh Morris (Tomodachi Life Living the Dream) ; ID kin | ✅
   </p>
     <p align="left">
-  ✩ - Orbulon (WarioWare) ; high kin
+  ✩ - Orbulon (WarioWare) ; high kin | ✅
   </p>
     <p align="left">
-  ✩ - Ribbit (The Amazing Digital Circus) ; high kin
+  ✩ - Ribbit (The Amazing Digital Circus) ; high kin | ✅
   </p>
     <p align="left">
-  ✩ - Yatta (Dandy's World) ; high kin
+  ✩ - Yatta (Dandy's World) ; high kin | ✅
   </p>
   <p align="left">
-  ✩ - Beef Boss (Poofesure) ; high kin
+  ✩ - Beef Boss (Poofesure) ; high kin | ❌
   </p>
     <p align="left">
-  ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin
+  ✩ - Darwin Watterson (The Amazing World Of Gumball) ; medium kin | ✅
   </p>
   <p align="left">
-  ✩ - Honeydrop (Droplet Island) ; medium kin
+  ✩ - Honeydrop (Droplet Island) ; medium kin | ✅
   </p>
   <p align="left">
-  ✩ - Poppy (Dandy's World) ; medium kin
+  ✩ - Poppy (Dandy's World) ; medium kin | ✅
   </p>
        <p align="left">
-  ✩ - Martian (Fact Attack Adventures) ; medium kin
+  ✩ - Martian (Fact Attack Adventures) ; medium kin | ✅
   </p>
     <p align="left">
-  ✩ - Face (Face's Music Party) ; medium kin
+  ✩ - Face (Face's Music Party) ; medium kin | ✅
   </p>
       <p align="left">
-  ✩ - Flippy Doggenbottom (Toontown Rewritten) ; medium kin
+  ✩ - Flippy Doggenbottom (Toontown Rewritten) ; medium kin | ✅
   </p>
   <p align="left">
-  ✩ - Purple (Among Us show) ; medium kin
+  ✩ - Purple (Among Us show) ; medium kin | ✅
   </p>
   <p align="left">
-  ✩ - 9-Volt (WarioWare) ; medium kin
+  ✩ - 9-Volt (WarioWare) ; medium kin | ✅
   </p>
    <p align="left">
-  ✩ - Cyan (Among Us show) ; low kin
+  ✩ - Cyan (Among Us show) ; low kin | ✅
   </p>
   <p align="left">
-  ✩ - Eclipseping (Catch! Teenieping) ; low kin
+  ✩ - Eclipseping (Catch! Teenieping) ; low kin | ✅
   </p>
   <p align="left">
   --
   </p>
   <p align="left">
-  doubles OK except for Kong (doubles iffy) and Beef Boss (doubles DNI)!
+  ✅ - doubles OK! | 😐 - doubles iffy.. | ❌ - doubles DNI
   </p>
   more info on my fictionkins: https://pronouns.cc/@Paraps
 </details>
