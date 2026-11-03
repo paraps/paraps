@@ -215,7 +215,7 @@ Jack Frew (BFDI + I Can Make A Difference)
 Kong (Random Toon / The Random Toon Show)
 </p>
 <p align="left">
- <img src="https://files.catbox.moe/xsgmge.gif"/>
+ <img src="https://i.imgur.com/78h0JBy.gif"/>
 </p>
 <p align="left">
 Facty (Fact Attack Adventures)
