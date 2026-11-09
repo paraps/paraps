@@ -18,10 +18,10 @@
 ✩ - sign my atabook and send gimmicks to my strawpage!! - ✩
 </p>
 <p align="center">
-  <img src="https://i.imgur.com/ubd8SOV.gif" /> <img src="https://i.imgur.com/J19RegR.gif"/> <img src="https://i.imgur.com/vCUFkMi.gif" />
+   <img src="https://i.imgur.com/RwNvI0r.gif" />  <img src="https://i.imgur.com/BQRbASV.gif" />  <img src="https://i.imgur.com/6Eco4wz.gif" />
 </p>
 <p align="center">
-   <img src="https://i.imgur.com/RwNvI0r.gif" />  <img src="https://i.imgur.com/BQRbASV.gif" />  <img src="https://i.imgur.com/6Eco4wz.gif" />
+  <img src="https://i.imgur.com/ubd8SOV.gif" /> <img src="https://i.imgur.com/J19RegR.gif"/> <img src="https://i.imgur.com/vCUFkMi.gif" />
 </p>
 <p align="center">
    <img src="https://64.media.tumblr.com/43f402b62c675ba28ee9138bc3f978c1/05e6ed0410c3dea5-90/s100x200/9ddd417f74409de0314226021bc7144084f605ab.gifv" />  <img src="https://64.media.tumblr.com/6c833426f76ba576c2c8f8136efdece8/05e6ed0410c3dea5-30/s100x200/0568455003ab8bc057b0cd4e4fd49900d5d92e09.gifv" />  <img src="https://64.media.tumblr.com/c8efe3579f1f5163146eb6ca4146a5b4/05e6ed0410c3dea5-a6/s100x200/2d288a3e33cca85454193a7999364bdc3de86e95.gifv" />
