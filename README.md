@@ -4,9 +4,6 @@
 <p align="center">
   <img src="https://i.imgur.com/EPoxfed.png" />
 </p>
-<p align="center">
-  <img src="https://i.imgur.com/mxaGtRp.gif" />
-</p>
 
 <p align="center">
 ✩ - current hyperfixation(s): BFDI, random toon / the random toon show, fact attack adventures - ✩
