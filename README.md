@@ -41,12 +41,6 @@
 <p align="center">
 ⛔️ - either i'm in a bad mood or just don't wanna be bothered. you can still whisper but PLEASE IWC/IWEC.
 </p>
-<p align="center">
----
-</p>
-<p align="center">
-PLEASE do not cover me. i like seeing my ponies lol
-</p>
 <details><summary>DNI / IWC</summary>
   <p align="left">
     DNI
@@ -69,6 +63,9 @@ PLEASE do not cover me. i like seeing my ponies lol
    <p align="left">
     ✩ - people who actively hate on my special interests / hyperfixations
   </p>
+     <p align="left">
+    ✩ - people who try to roleplay with me (outside of party island)
+  </p>
   <p align="left">
     --
   </p>
@@ -78,29 +75,23 @@ PLEASE do not cover me. i like seeing my ponies lol
      <p align="left">
   ✩ - if you're just generally mean or rude honestly
   </p>
-      <p align="left">
-  ✩ - if you make suggestive / NSFW jokes often (just like,, try to limit them around me)
-  </p>
         <p align="left">
   ✩ - dandy's world area (spawn) regulars, i'm only really there to look at people's skins
   </p>
-    <p align="left">
+      <p align="left">
     --
   </p>
     <p align="left">
-    though usually, i just block freely.
-  </p>
-    <p align="left">
-    --
-  </p>
-  <p align="left">
-    also people who are REALLY active in regiments are in the IWC section for me too
-  </p>
-  <p align="left">
-    but my reasoning is basically this
+   ✩ - people who are REALLY active in regiments fit here too but my reasoning is basically this
   </p>
     <p align="left">
     <img src="https://i.imgur.com/Zpzysr1.png"/>
+  </p>
+    <p align="left">
+    --
+  </p>
+    <p align="left">
+    usually i just block freely though, if i have you blocked/hidden chances are i got weird vibes from you, i'm in your DNI, you're covering / advertising, or just for personal comfort.
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
