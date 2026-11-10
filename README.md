@@ -55,7 +55,7 @@ PLEASE do not cover me. i like seeing my ponies lol
     DNI
   </p>
   <p align="left">
-  ✩ - basic DNI criteria
+  ✩ - basic DNI criteria / T.R.A.S.H.
   </p>
   <p align="left">
   ✩ - pro/darkshippers or just anything of that sort
@@ -67,7 +67,7 @@ PLEASE do not cover me. i like seeing my ponies lol
   ✩ - if you're against fictionkins, therians, otherkins, etc. ; or have them in your DNI
   </p>
      <p align="left">
-  ✩ - any sort of NSFW ponies get PERMA HIDDEN, NO EXCEPTIONS.
+  ✩ - any sort of NSFW ponies, even on the 18+ server (i'm asexual and they just make me uncomfy sorry)
   </p>
    <p align="left">
     ✩ - people who actively hate on my special interests / hyperfixations
