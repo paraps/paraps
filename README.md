@@ -91,7 +91,7 @@
     --
   </p>
     <p align="left">
-    usually i just block freely though, if i have you blocked/hidden chances are i got weird vibes from you, i'm in your DNI, you're covering / advertising, or just for personal comfort.
+    usually i just block freely though. if i have you blocked/hidden, chances are i got weird vibes from you, i'm in your DNI, you're covering me / advertising, or just for personal comfort.
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
