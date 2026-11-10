@@ -91,9 +91,19 @@ PLEASE do not cover me. i like seeing my ponies lol
     --
   </p>
     <p align="left">
-    i'll also be blocking freely and usually if you're annoying me, i'm in your DNI, you have bad vibes, etc. i'll add to this when needed.
-  </p> <p align="left">
-    friends are excluded from these and people who i interact with first are fine aswell.
+    though usually, i just block freely.
+  </p>
+    <p align="left">
+    --
+  </p>
+  <p align="left">
+    also people who are REALLY active in regiments are in the IWC section for me too
+  </p>
+  <p align="left">
+    but my reasoning is basically this
+  </p>
+    <p align="left">
+    <img src="https://i.imgur.com/Zpzysr1.png"/>
   </p>
 </details>
 <details><summary>FICTIONKINS</summary>
