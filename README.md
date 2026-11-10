@@ -39,7 +39,7 @@
 🌙 - i'm mostly offtab and not looking at ponytown, whisper to interact.
 </p>
 <p align="center">
-⛔️ - i'm in a bad mood, you can still whisper but PLEASE IWC/IWEC.
+⛔️ - either i'm in a bad mood or just don't wanna be bothered. you can still whisper but PLEASE IWC/IWEC.
 </p>
 <p align="center">
 ---
