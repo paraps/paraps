@@ -82,7 +82,7 @@
     --
   </p>
     <p align="left">
-   ✩ - people who are REALLY active in regiments fit here too but my reasoning is basically this
+   ✩ - people who are REALLY active in regiments fit in the IWC section too but my reasoning is basically just this
   </p>
     <p align="left">
     <img src="https://i.imgur.com/Zpzysr1.png"/>
